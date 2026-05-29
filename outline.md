@@ -2,11 +2,13 @@
 
 ## Revised premise
 
-A modern construction expert dies and reincarnates in Bethlehem around the turn of the era. They grow up as **Yeshua bar Yosef**, a carpenter’s son in Judea.
+A modern construction expert — **Daniel**, an American contractor — dies on a rainy job site and reincarnates in Bethlehem around the turn of the era.
+He grows up as **Yeshua bar Yosef**, a carpenter’s son in Judea.
 
 They do **not** realize they are the historical figure later known as Jesus.
 
-They have no miracles, no divine powers, no certainty about God’s plan, and no status-screen prophecy. Their only advantages are practical building knowledge, a modern-ish moral vocabulary, and rough half-remembered Bible knowledge from cultural exposure.
+They have no miracles, no divine powers, no certainty about God’s plan, and no status-screen prophecy.
+Their only advantages are practical building knowledge, a modern-ish moral vocabulary, and rough half-remembered Bible knowledge from cultural exposure.
 
 The irony is that they keep accidentally drifting into Biblical events because ordinary decisions, social pressure, political violence, and public misunderstanding push them there.
 
@@ -20,7 +22,8 @@ The story is not “Jesus knowingly reenacts the Gospels.” It is closer to:
 
 ## Chapter 1: The Calendar Error
 
-The protagonist is born in Bethlehem. Their first coherent thought as an infant is that something has gone wrong with the calendar.
+The protagonist is born in Bethlehem.
+Their first coherent thought as an infant is that something has gone wrong with the calendar.
 
 They vaguely remember that Jesus was born “around 0,” but also remember there was no year zero and that historians argue about the date.
 
@@ -28,7 +31,8 @@ They assume they are simply in the right general period, not that they are *that
 
 ## Chapter 2: The Manger Was Poorly Constructed
 
-The family is displaced, crowded, or traveling. The protagonist’s infant memories are mostly sensory: straw, animals, rough timber, stone walls, improvised shelter.
+The family is displaced, crowded, or traveling.
+The protagonist’s infant memories are mostly sensory: straw, animals, rough timber, stone walls, improvised shelter.
 
 Later, when people romanticize the scene, they remember only one thing:
 
@@ -36,19 +40,23 @@ Later, when people romanticize the scene, they remember only one thing:
 
 ## Chapter 3: Men from the East
 
-Foreign visitors arrive with gifts. The protagonist is too young to understand, but later hears family stories about strange men, omens, and Herod’s fear.
+Foreign visitors arrive with gifts.
+The protagonist is too young to understand, but later hears family stories about strange men, omens, and Herod’s fear.
 
 They file this away as “possibly Magi stuff,” but assume many families probably told exaggerated omen stories.
 
 ## Chapter 4: The Flight
 
-The family flees danger. As a child, the protagonist experiences this as fear, poverty, motion, and adult secrecy.
+The family flees danger.
+As a child, the protagonist experiences this as fear, poverty, motion, and adult secrecy.
 
 They later half-remember the Biblical “flight into Egypt” story and think:
 
-> Wait. Did that happen to us? Or am I pattern-matching because I know the story?
+> Wait.
+Did that happen to us? Or am I pattern-matching because I know the story?
 
-This uncertainty becomes central. Their Bible knowledge is rough enough to be useful, but too vague to be trusted.
+This uncertainty becomes central.
+Their Bible knowledge is rough enough to be useful, but too vague to be trusted.
 
 ---
 
@@ -58,15 +66,21 @@ This uncertainty becomes central. Their Bible knowledge is rough enough to be us
 
 The protagonist grows up in Nazareth as Yeshua, son of Yosef/Joseph and Maryam/Mary.
 
-They know the name is common. They know carpentry is common. They know Judea is full of messianic expectation.
+They know the name is common.
+They know carpentry is common.
+They know Judea is full of messianic expectation.
 
 They explicitly reject the obvious conclusion because it sounds insane.
 
 ## Chapter 6: The Tekton’s Son
 
-They learn the family trade. “Carpenter” means builder broadly: wood, stone, repairs, tools, doors, beams, roof work, agricultural equipment.
+They learn the family trade.
+“Carpenter” means builder broadly: wood, stone, repairs, tools, doors, beams, roof work, agricultural equipment.
 
-They do not glow. They cannot heal injuries. They cannot multiply food. They can make an excellent yoke.
+They do not glow.
+They cannot heal injuries.
+They cannot multiply food.
+They can make an excellent yoke.
 
 ## Chapter 7: Joseph Is Better at This
 
@@ -82,13 +96,15 @@ At around twelve, the family visits Jerusalem.
 
 The protagonist wanders into discussions with teachers, partly because they are fascinated by law, ethics, temple logistics, architecture, and the terrifying social power of interpretation.
 
-Adults are impressed. Mary is furious.
+Adults are impressed.
+Mary is furious.
 
 The protagonist suddenly remembers: *There is a story about young Jesus in the Temple.*
 
 They are shaken, but still rationalize it:
 
-> Lots of precocious boys must have argued with teachers. This proves nothing.
+> Lots of precocious boys must have argued with teachers.
+This proves nothing.
 
 ## Chapter 9: The First Suspicion
 
@@ -121,7 +137,8 @@ History does not cooperate.
 
 ## Chapter 11: The Sermon Against Bad Foundations
 
-A house collapses after heavy rain. The protagonist angrily explains that building on poor ground without proper foundations is reckless.
+A house collapses after heavy rain.
+The protagonist angrily explains that building on poor ground without proper foundations is reckless.
 
 Someone later repeats it as a moral saying.
 
@@ -133,13 +150,15 @@ The protagonist starts taking low-status repair jobs because elite patrons are e
 
 They develop a reputation for defending debtors, laborers, widows, and day workers.
 
-This is not because they are trying to fulfill scripture. It is because they cannot stomach the local economy.
+This is not because they are trying to fulfill scripture.
+It is because they cannot stomach the local economy.
 
 ## Chapter 13: Water Into Wine, Without Miracles
 
 At a wedding in Cana, the wine runs short.
 
-The protagonist does not transform water into wine. Instead, they solve the crisis socially: they locate stored wine, shame a negligent supplier, reorganize serving vessels, and prevent public humiliation.
+The protagonist does not transform water into wine.
+Instead, they solve the crisis socially: they locate stored wine, shame a negligent supplier, reorganize serving vessels, and prevent public humiliation.
 
 By the next week, the story has become:
 
@@ -169,7 +188,8 @@ The protagonist thinks they are just using examples people understand.
 
 ## Chapter 15: The Beatitudes Were Crowd Control
 
-A tense crowd gathers. The protagonist tries to calm them by saying the poor, grieving, meek, hungry, merciful, and persecuted are not worthless.
+A tense crowd gathers.
+The protagonist tries to calm them by saying the poor, grieving, meek, hungry, merciful, and persecuted are not worthless.
 
 They mean it as comfort and anti-violence.
 
@@ -197,7 +217,9 @@ John looks at them with alarming recognition.
 
 The protagonist panics.
 
-No dove descends. No supernatural voice speaks. But the crowd interprets the moment intensely.
+No dove descends.
+No supernatural voice speaks.
+But the crowd interprets the moment intensely.
 
 ## Chapter 18: The Wilderness
 
@@ -215,7 +237,8 @@ The “temptations” are internal:
 
 They emerge with one rule:
 
-> Do the next right thing. Do not perform destiny.
+> Do the next right thing.
+Do not perform destiny.
 
 ## Chapter 19: The Kingdom Problem
 
@@ -271,7 +294,8 @@ But they can do things that look socially miraculous:
 - use placebo, courage, and public permission;
 - notice psychosomatic distress caused by shame or fear.
 
-Some people genuinely improve. Others do not.
+Some people genuinely improve.
+Others do not.
 
 The rumors simplify everything into healings.
 
@@ -289,7 +313,8 @@ The protagonist hates that the stories become supernatural, but cannot deny that
 
 A crowd gathers in a remote place.
 
-The protagonist cannot multiply bread and fish. Instead, they shame hoarders, organize sharing, divide groups, reveal hidden food, and prevent panic.
+The protagonist cannot multiply bread and fish.
+Instead, they shame hoarders, organize sharing, divide groups, reveal hidden food, and prevent panic.
 
 Everyone eats enough.
 
@@ -297,7 +322,8 @@ By sunset, people are saying the food multiplied.
 
 The protagonist mutters:
 
-> Logistics. It was logistics.
+> Logistics.
+It was logistics.
 
 ## Chapter 25: Walking on Water
 
@@ -315,7 +341,8 @@ Nobody prefers the correction.
 
 ## Chapter 26: The Father Problem
 
-The protagonist avoids grand claims about divine identity. Their language about God as Father comes from prayer, Jewish tradition, and a desire to make divine authority feel less like imperial power.
+The protagonist avoids grand claims about divine identity.
+Their language about God as Father comes from prayer, Jewish tradition, and a desire to make divine authority feel less like imperial power.
 
 Later followers interpret more than they intended.
 
@@ -349,7 +376,8 @@ They do not plan a prophetic demonstration.
 
 They snap.
 
-The table-flipping is not theatrical destiny. It is a carpenter-laborer losing control after seeing worship turned into a predatory marketplace.
+The table-flipping is not theatrical destiny.
+It is a carpenter-laborer losing control after seeing worship turned into a predatory marketplace.
 
 ## Chapter 30: The Authorities Notice
 
@@ -395,7 +423,8 @@ The accumulated parallels are too strong:
 
 They realize:
 
-> I am the historical Jesus. Or at least I am the person history will turn into Jesus.
+> I am the historical Jesus.
+Or at least I am the person history will turn into Jesus.
 
 ## Chapter 33: Can History Be Avoided?
 
@@ -411,7 +440,8 @@ The story suggests not hard determinism, but narrative gravity: people, power, m
 
 ## Chapter 34: Judas the Practical Man
 
-Judas is not a cartoon villain. He is politically sharper than the others and increasingly frustrated.
+Judas is not a cartoon villain.
+He is politically sharper than the others and increasingly frustrated.
 
 He believes the protagonist is wasting influence.
 
@@ -423,7 +453,8 @@ Peter is loyal, impulsive, brave, and dangerous.
 
 The protagonist sees how movements are built by people who misunderstand you enthusiastically.
 
-Peter loves them. Peter also makes everything worse.
+Peter loves them.
+Peter also makes everything worse.
 
 ---
 
@@ -431,13 +462,17 @@ Peter loves them. Peter also makes everything worse.
 
 ## Chapter 36: The Last Supper Was Damage Control
 
-The protagonist knows danger is near. They gather the closest followers not to institute destiny, but to prepare them emotionally.
+The protagonist knows danger is near.
+They gather the closest followers not to institute destiny, but to prepare them emotionally.
 
 Bread and wine become symbols because that is what is on the table.
 
 They try to say:
 
-> Remember the work. Feed people. Forgive debts. Do not become another hierarchy.
+> Remember the work.
+Feed people.
+Forgive debts.
+Do not become another hierarchy.
 
 Later, everyone debates metaphysics.
 
@@ -445,7 +480,9 @@ Later, everyone debates metaphysics.
 
 This chapter is the emotional core.
 
-The protagonist has no divine certainty. They do not know whether death will lead to resurrection. They only know the rough outline of the story and that crucifixion is real.
+The protagonist has no divine certainty.
+They do not know whether death will lead to resurrection.
+They only know the rough outline of the story and that crucifixion is real.
 
 They pray not because they are performing scripture, but because terror has removed every other option.
 
@@ -453,15 +490,18 @@ They pray not because they are performing scripture, but because terror has remo
 
 Judas identifies them to the authorities.
 
-The protagonist sees that knowing the story did not let them prevent it. Their caution, fear, and guardedness may have helped cause it.
+The protagonist sees that knowing the story did not let them prevent it.
+Their caution, fear, and guardedness may have helped cause it.
 
 This is the tragedy of partial foreknowledge.
 
 ## Chapter 39: Trial as Bureaucracy
 
-The trial scenes are not melodrama. They are institutional self-protection.
+The trial scenes are not melodrama.
+They are institutional self-protection.
 
-Nobody needs to be mustache-twirling evil. Everyone has incentives:
+Nobody needs to be mustache-twirling evil.
+Everyone has incentives:
 
 - priests fear unrest;
 - Rome fears rebellion;
@@ -476,7 +516,8 @@ The protagonist is beaten, mocked, and executed.
 
 No rescue comes.
 
-They understand, finally, that having no powers was not a temporary condition. This is what being human meant.
+They understand, finally, that having no powers was not a temporary condition.
+This is what being human meant.
 
 The crucifixion is written without ironic distance.
 
@@ -488,7 +529,9 @@ The crucifixion is written without ironic distance.
 
 The resurrection remains ambiguous.
 
-The tomb is empty. Followers report appearances. The narration never confirms exactly what happened.
+The tomb is empty.
+Followers report appearances.
+The narration never confirms exactly what happened.
 
 Possible explanations circulate inside the story:
 
@@ -498,7 +541,8 @@ Possible explanations circulate inside the story:
 - grief produced visionary experiences;
 - something beyond human explanation occurred.
 
-The novel does not resolve the question. It keeps the focus on memory, grief, faith, fear, and the uncontrollable transformation of a human life into sacred history.
+The novel does not resolve the question.
+It keeps the focus on memory, grief, faith, fear, and the uncontrollable transformation of a human life into sacred history.
 
 ## Chapter 42: Mary Magdalene Remembers Differently
 
@@ -514,7 +558,8 @@ Peter retells events with love, guilt, exaggeration, insight, and misunderstandi
 
 The reader sees how accidental sayings become doctrine.
 
-Peter is not lying. He is trying to make sense of a life he loved and failed to understand while it was happening.
+Peter is not lying.
+He is trying to make sense of a life he loved and failed to understand while it was happening.
 
 ## Chapter 44: Paul, the Man Who Never Met Him
 
@@ -564,7 +609,8 @@ The historical Jesus becomes like a load-bearing beam inside civilization: argue
 
 # Characterization of the protagonist
 
-They should not be smug or anti-religious. The strongest version is someone who is:
+They should not be smug or anti-religious.
+The strongest version is someone who is:
 
 - morally serious but not saintly;
 - historically trapped but still responsible;
@@ -584,7 +630,8 @@ Their central tragedy:
 
 Their central craft metaphor:
 
-> A builder does not decide how future generations will use the house. He can only decide whether the beams are honest.
+> A builder does not decide how future generations will use the house.
+He can only decide whether the beams are honest.
 
 ---
 
