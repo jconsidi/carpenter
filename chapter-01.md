@@ -362,7 +362,7 @@ They were not any language he had learned.
 Still, sense kept arriving after sound, as though part of him had been given the memory of the language but not the courtesy of fluency.
 He understood in patches.
 Nouns came more easily than verbs.
-Names arrived whole.
+Names arrived half-formed and slipped away again.
 Reassurances dissolved into warmth and rhythm.
 
 He caught fragments.
@@ -377,12 +377,12 @@ Too late.
 
 Room.
 
-Bethlehem.
+A town name he almost knew.
 
-The last word lodged for a moment, not because it meant one thing, but because it meant too many.
-A town from maps and songs and headlines and old stone churches.
-A place people visited and argued over.
-A name that belonged to history before it belonged to geography.
+The last one lodged for a moment, not because it meant one thing, but because it meant too many.
+A place from maps and songs and old stone churches.
+Or maybe not.
+Maybe his mind had simply grabbed at a familiar shape inside unfamiliar sound.
 
 Then the body pulled him back.
 
@@ -392,7 +392,7 @@ Cloth.
 A thumb brushing his cheek.
 The ache in his lungs.
 
-Bethlehem drifted away with the smoke.
+The word drifted away with the smoke.
 
 He was passed from one pair of hands to another.
 
@@ -531,9 +531,8 @@ Sometimes he heard only blood, breath, animals, rain.
 
 A road.
 
-A king’s name, perhaps.
+A powerful name, perhaps.
 Or not.
-Herod, maybe, though it passed too quickly for certainty.
 Men spoke of powerful men in every age.
 The names changed less than the fear around them.
 
@@ -549,10 +548,10 @@ Here, perhaps, they were not.
 
 David.
 
-That word he knew in any language.
-
-But David was everywhere.
-In songs, in family claims, in jokes, in the names of boys who would never see a throne.
+That word he knew in any language, though he could not have said why it surfaced now.
+Kings were everywhere in stories.
+So were taxes.
+So were roads.
 A name could be enormous and ordinary at once.
 
 He wanted to sort the fragments into a timeline.
@@ -569,8 +568,7 @@ A child in a feeding trough.
 Travelers.
 Shepherds.
 A jealous ruler.
-Egypt.
-Nazareth.
+A journey.
 Later things, adult things, impossible things.
 Water and wine.
 Bread and fish.
