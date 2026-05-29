@@ -328,93 +328,73 @@ Good, he thought wildly.
 Good.
 Someone is paying attention.
 
-The man—Yosef, apparently—brought the cloth.
+The man brought the cloth.
 His hands were large, callused, and steadier than his breathing.
 He held the folded linen as if it mattered how the corners met.
 
 A builder’s hands, Daniel thought.
 
-The thought should have comforted him.
-It did, a little.
-Then it opened a door he did not want opened.
+That helped.
+More than it should have.
 
-Maryam.
+He had been thrown from a world where nearly every object had been machined, stamped, graded, shipped, certified, ignored, installed, photographed, and litigated into a world where a man’s hands still had to answer personally for a crooked door.
+He could not name the room.
+He could not name the century.
+He could not name the rules by which his dead mind had been tied to this impossible body.
 
-Yosef.
+But he knew hands.
 
-No.
+The man had working hands.
 
-No, absolutely not.
+For a few seconds, that was enough.
 
-Those were common names.
-They had to be common names.
-Maryam was as common as Mary, because it was Mary, or Miriam, or something in the family of names that showed up everywhere in the ancient world.
-Yosef was Joseph, and Joseph had never been rare.
-He knew that.
-Everyone knew that, or would know it if they spent ten seconds thinking instead of letting pattern recognition sprint into traffic.
+Daniel tried to ask him where they were.
 
-He was a baby.
-Babies were born.
-People named Maryam had babies.
-People named Yosef stood nervously in rooms.
-That did not mean anything.
+The result was a wet, indignant squawk.
 
-He tried to ask what country this was.
+The older woman made a pleased sound.
 
-His mouth opened.
+“Strong lungs,” she said, or close enough that the meaning landed.
 
-A sound came out that suggested he objected to milk, mortality, and the general premise of matter.
-
-The woman holding him laughed again, tired this time.
-
-“Strong lungs,” the older woman said.
-
-That much he understood.
-Or almost understood.
+His hearing was strange.
 The words were not English.
 They were not any language he had learned.
-Still, meaning kept arriving.
-Not perfectly.
-Not as translation exactly.
-More like he was remembering the sense of sounds a moment after hearing them.
+Still, sense kept arriving after sound, as though part of him had been given the memory of the language but not the courtesy of fluency.
+He understood in patches.
+Nouns came more easily than verbs.
+Names arrived whole.
+Reassurances dissolved into warmth and rhythm.
 
-His mind reached for explanations and found none that were structurally sound.
+He caught fragments.
 
-Coma, it suggested.
+Road.
 
-No.
-Too coherent.
+Crowded.
 
-Dream.
+Family.
 
-No.
-Too painful.
+Too late.
 
-Hallucination.
+Room.
 
-The smell of the room argued against hallucination with overwhelming force.
+Bethlehem.
 
-Reincarnation.
+The last word lodged for a moment, not because it meant one thing, but because it meant too many.
+A town from maps and songs and headlines and old stone churches.
+A place people visited and argued over.
+A name that belonged to history before it belonged to geography.
 
-The word sat there, stupid and impossible and the only thing with enough empty space inside it to hold what had happened.
+Then the body pulled him back.
 
-Daniel had not believed in reincarnation.
-He had not disbelieved in it with particular vigor either.
-It had occupied the same mental shelf as ghosts, angels, curses, and clients who said payment would be “easy.” Not impossible in the mathematical sense.
-Just not something he expected to encounter before lunch.
+Cold.
+Hunger.
+Cloth.
+A thumb brushing his cheek.
+The ache in his lungs.
 
-He had expected, if pressed, nothing.
+Bethlehem drifted away with the smoke.
 
-He had received a ceiling with questionable joinery.
-
-A woman leaned over him.
-Not the young one.
-Older.
-A midwife, maybe.
-Her face was lined, damp, competent, unimpressed by metaphysics.
-She adjusted the cloth around him, tucked it tighter, and said something to Maryam that made the room release a little of its tension.
-
-He was passed.
+He was passed from one pair of hands to another.
 
 The movement terrified him.
 His body understood falling better than he did.
@@ -440,37 +420,9 @@ He quieted before he could resent himself for it.
 Outside the room, someone argued in a low voice.
 Another answered.
 A door opened briefly, and colder air entered with the smell of wet wool and animals.
-A few words slipped through.
-
-Bethlehem.
-
-Daniel went still.
-
-The baby body did not know how to be still.
-It continued making small, ridiculous motions.
-But whatever part of him was still Daniel—still a man who had died in the rain because the beam was wrong—went rigid.
-
-Bethlehem.
-
-No.
-
-It was a place.
-A real place.
-People lived there.
-People had lived there for a long time.
-Children had been born in Bethlehem before the story and after the story and beside the story.
-The name itself proved nothing.
-
-Maryam.
-Yosef.
-Bethlehem.
-
-No.
-
-The mind was a pattern-making machine.
-That was all.
-Give it three dots and it drew a triangle.
-Give it two common names and a town and it tried to build a cathedral.
+A few words slipped through, but he could not hold them.
+His mind tried to gather them and failed.
+Everything in him was too new and too old at once.
 
 He looked for the ceiling again.
 
@@ -488,18 +440,17 @@ Stone or plaster walls.
 Packed earth under straw.
 A manger near enough to smell old grain and animal spit.
 A feeding trough.
-Of course there was a feeding trough.
-Animals existed.
-Troughs existed.
-People used whatever was available when a birth happened in a crowded house or attached shelter or whatever this was.
-Later stories made things neat.
-Real life made space where it could.
+A practical object, not a symbol.
+Something built because animals needed to eat and people used what they had.
+Later, if there was a later, he could have fixed it in an hour with a saw, a mallet, and the right peg.
 
-The manger was not romantic.
+He looked more closely.
 
-It was a box with opinions.
+No saw.
 
-Bad ones.
+No mallet.
+
+Wrong peg.
 
 The side board had been joined in haste.
 One corner gapped.
@@ -509,19 +460,19 @@ He would not have accepted it from a first-year apprentice unless the apprentice
 
 He was placed in it.
 
-The indignity was so complete that for a moment it saved him.
+The indignity was so complete that for a moment it steadied him.
 
-He had died and been reborn as a baby in an ancient animal room, possibly in Bethlehem, possibly to a woman named Maryam and a man named Yosef, and what offended him most urgently was that the container assigned to him lacked craftsmanship.
+He had died and been reborn as a baby in a room that smelled of straw and lamp oil, and what offended him most urgently was that the container assigned to him lacked craftsmanship.
 
 That, at least, felt like continuity.
 
-The midwife tucked cloth around him.
+The older woman tucked cloth around him.
 Straw rustled beneath.
 The manger held.
 
 Barely, he thought.
 
-The man Yosef came closer.
+The man came closer.
 Now Daniel could see him a little better, though “see” was too generous.
 A dark beard.
 Tired eyes.
@@ -532,14 +483,14 @@ He looked down into the manger.
 Daniel looked back.
 
 For a moment, something passed between them that Daniel could not name.
-Yosef’s expression changed, not into recognition—impossible—but into wary attention.
+The man’s expression changed, not into recognition—impossible—but into wary attention.
 As if he had expected a newborn and found, behind the unfocused eyes, someone already complaining.
 
 “He looks like he is judging the roof,” the older woman said.
 
 Maryam made a sound that might have been a laugh if she had possessed the strength for one.
 
-Yosef glanced up.
+The man glanced up.
 
 Daniel loved him for that.
 
@@ -556,7 +507,7 @@ A temporary answer from a man with no tools free and too much else happening.
 
 Daniel stopped crying.
 
-Yosef looked back at him.
+The man looked back at him.
 
 The room noticed.
 
@@ -572,88 +523,91 @@ He was beyond tired.
 Tired belonged to bodies after work.
 This was something else: the exhaustion of being impossible.
 
-He listened.
+He listened, but listening was unreliable.
+The room would sharpen and fade without warning.
+Sometimes the lamp flame seemed to fill the whole world.
+Sometimes a single word struck him with the weight of a dropped stone.
+Sometimes he heard only blood, breath, animals, rain.
 
-The adults spoke in fragments.
-Some words he understood.
-Some passed by as sound.
 A road.
-Too many people.
-Family.
-Room.
-Herod’s men, maybe, or perhaps just men; the word came and went.
-Tax.
-Registration.
-Kin.
+
+A king’s name, perhaps.
+Or not.
+Herod, maybe, though it passed too quickly for certainty.
+Men spoke of powerful men in every age.
+The names changed less than the fear around them.
+
+A tax.
+
+Or a count.
+
+Or a family obligation.
+The words tangled.
+He could not tell whether these people had traveled because the world commanded it, or because kinship did, or because poverty did.
+In his old life those had been different categories.
+Here, perhaps, they were not.
+
 David.
-Jerusalem.
 
-Each word was a nail.
+That word he knew in any language.
 
-He tried to pry them out.
+But David was everywhere.
+In songs, in family claims, in jokes, in the names of boys who would never see a throne.
+A name could be enormous and ordinary at once.
 
-There were many men named Yosef.
-There were many women named Maryam.
-Bethlehem was a real place.
-David was a common ancestral boast.
-Crowded rooms were not prophecies.
-Feeding troughs were not destiny.
-A child could be born in the vicinity of symbols without being swallowed by them.
+He wanted to sort the fragments into a timeline.
+His old mind reached for one automatically.
+Before, after, cause, risk, probability.
+But the newborn body kept interrupting.
+Hunger came like weather.
+Cold became law.
+The need to cry rose from somewhere below language and seized the machinery of his throat.
 
-Besides, he thought, with sudden relief, the story he half remembered had angels.
+His knowledge, when he tried to summon it, was worse than useless.
+It came as scraps from plays, paintings, carols, arguments half-heard at funerals, phrases that had entered English and lost their edges.
+A child in a feeding trough.
+Travelers.
+Shepherds.
+A jealous ruler.
+Egypt.
+Nazareth.
+Later things, adult things, impossible things.
+Water and wine.
+Bread and fish.
+A hill.
+A cross.
 
-There were no angels.
+Too many stories had been laid over one another until he could not tell which belonged to text, which to tradition, which to paintings, and which to December television specials he had watched while wrapping presents badly.
 
-Only smoke, straw, and a roof that needed work.
+And none of that proved anything.
 
-He held onto that.
+Stories used real places.
+Real people had common names.
+Poor families crowded into bad rooms.
+Children were born beside animals.
+Men with working hands checked latches.
+Women bled and survived and named their sons.
 
-His knowledge of the Bible was not good.
-That was important.
-He had not been raised devoutly.
-He knew Christmas pageants, paintings, carols, arguments half-heard at funerals, phrases that had entered English and detached from their origins.
-He knew there were shepherds, wise men, a manger, no room at the inn, King Herod, Egypt maybe, Nazareth later, John the Baptist, fishermen, loaves and fishes, water into wine, walking on water, parables, tables in the temple, Judas, Pilate, cross, empty tomb.
+The room was not a prophecy.
 
-He knew too much.
+It was a room.
 
-He knew almost nothing.
+He held onto that with all the strength his tiny, useless body did not possess.
 
-He could not have named the order with confidence.
-He could not have explained which Gospel said what.
-He was dimly aware that the popular version combined stories that did not entirely match.
-He knew historians argued about everything.
-He knew enough to recognize a trap and not enough to find the door.
-
-Also, he was a newborn.
-
-This limited his options.
-
-A shepherd’s voice sounded outside.
-
-Daniel nearly came apart.
-
-No.
-No.
-Shepherds were allowed to exist near Bethlehem.
-That was practically their job.
-The presence of a shepherd within shouting distance of a small Judean town was not evidence of anything except sheep.
-
-The door opened again.
-A young man leaned in, face bright with curiosity and cold.
+A young man’s voice sounded outside, bright with curiosity.
 
 “Is it true?” he asked.
 
-Yosef moved between him and the manger.
+The man by the doorway moved before Daniel understood the words.
+He put himself between the voice and the manger.
 
 That, too, was a kind of construction.
 A body made into a wall.
 
-“Later,” Yosef said.
+“Later,” he said.
 
 The young man withdrew, chastened but not offended.
 Outside, muffled voices continued.
-Not a heavenly chorus.
-Just people.
 Curious people.
 Tired people.
 People drawn by the oldest entertainment in the world: someone else’s emergency.
@@ -661,7 +615,7 @@ People drawn by the oldest entertainment in the world: someone else’s emergenc
 Maryam closed her eyes.
 
 The midwife fussed with cloths, water, straw.
-Yosef checked the doorway again, then the roof, then the manger, then Maryam.
+The man checked the doorway again, then the roof, then the manger, then Maryam.
 His attention moved like a lantern in a dark house.
 Not perfect.
 Human.
@@ -669,20 +623,9 @@ But steady.
 
 Daniel watched him and felt, against his will, the beginning of trust.
 
-That frightened him more than the names.
+That frightened him.
 
-If this was what he feared it was, then the man in the doorway was Joseph.
-
-Not a figurine.
-Not a silhouette in a stained-glass window.
-Not a tired extra in someone else’s miracle.
-A real man with wet sleeves and callused hands, trying to keep a room warm enough for a woman and child after a journey that had clearly cost them.
-
-And the woman holding him was—
-
-No.
-
-Do not finish the thought.
+Trust meant a place to stand, and he did not know what ground he stood on.
 
 He went back to the beam.
 
@@ -736,7 +679,7 @@ Not catastrophically wrong.
 Not the kind of wrong that brought a roof down in a single dramatic groan.
 But a quiet wrong: a peg driven at a bad angle, a notch cut too greedily, a wedge pretending to be a joint.
 The sort of wrong a person could spend a useful minute thinking about.
-The sort of wrong that could save him from thinking about Bethlehem, and Maryam, and Yosef, and shepherds outside the door, and the shape of a story he refused to know.
+The sort of wrong that could save him from thinking about the room, and the woman holding him, and the man at the door, and the listening dark beyond it.
 
 The beam was wrong.
 
