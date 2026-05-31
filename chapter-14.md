@@ -30,7 +30,7 @@ Yosef looked at the shed.
 
 Maryam was not with them, but Daniel heard her anyway: where does the water go?
 
-Mara stood behind Daniel with a bundle of cord and the expression of someone who had already decided the shed was personally offensive.
+Mara—the girl Daniel had once thought of only as quick hands and quicker insults—stood behind him with a bundle of cord and the expression of someone who had already decided the shed was personally offensive.
 
 “The door is not the problem,” Daniel said.
 
