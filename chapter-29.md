@@ -341,7 +341,6 @@ Danger among men who lose control of rooms.
 Fraud among those who wanted spectacle and got work.
 Yosef's son among locals.
 Maryam's son among women who know the household.
-Daniel among those close enough to be corrected.
 Poor-water-balance among lake people."
 
 Mara said, "The safest theology."
@@ -350,7 +349,7 @@ Natan nodded.
 
 "Perhaps."
 
-Daniel said, "What about the new name?"
+Daniel said, "What about Yeshua?"
 
 Natan's face changed.
 
@@ -362,12 +361,6 @@ It had been withheld not from Maryam, Yosef, Mara, Erel, Natan, Dalia, Ruth, Han
 Natan knew it.
 
 Of course he did.
-
-He had heard it at the Temple as a boy, perhaps.
-Or later in the village.
-Everyone local knew it.
-The mystery was not in-world secrecy.
-It was narrative refusal, Daniel's private superstition that not printing the name could delay what the world already said.
 
 Natan spoke carefully.
 
