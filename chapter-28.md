@@ -4,7 +4,7 @@ The question arrived disguised as a cracked lintel.
 
 This was becoming a pattern.
 
-A man named Amram brought it on a cart with two cousins, three opinions, and no useful measurements.
+A man named Malki brought it on a cart with two cousins, three opinions, and no useful measurements.
 The lintel had come from a storage doorway in a house near the market.
 It was not fully broken, which made it more dangerous.
 A clean break at least admitted failure.
@@ -16,7 +16,7 @@ Termites had considered it as philosophy.
 
 Yosef looked at it and said, "No."
 
-Amram blinked.
+Malki blinked.
 
 "No?"
 
@@ -25,7 +25,7 @@ Not reused as lintel."
 
 Daniel loved him for that.
 
-Amram looked disappointed.
+Malki looked disappointed.
 His cousins looked offended on behalf of economy.
 
 "It has held many years," one cousin said.
@@ -65,11 +65,23 @@ Daniel said, "Good."
 
 Erel tried not to smile.
 
-Amram watched this with impatience.
+Malki watched this with impatience.
 
-"We came because people said the teacher sees what things are."
+"We came because people said Yeshua sees what things are."
 
-Daniel froze.
+The ordinary name landed in the courtyard like any ordinary name should have: local, familiar, unadorned.
+Maryam had called it across rooms when Daniel forgot to eat.
+Yosef had used it when Daniel held a board wrong.
+Mara used it when mockery needed a handle.
+Children shortened it.
+Neighbors stretched it into complaint.
+In this world, it did not announce prophecy.
+It called a man to work.
+
+That was what made Daniel's stomach twist.
+
+The terror was not in the syllables.
+The terror was in what later mouths would make from them, and in what current mouths were already beginning to ask the syllables to carry.
 
 Mara lifted her head.
 
@@ -81,9 +93,9 @@ He kept his hand on the lintel.
 
 "Wood first," he said.
 
-Amram frowned.
+Malki frowned.
 
-"I mean the boy."
+"I mean the teacher."
 
 "Wood first," Yosef repeated.
 
@@ -97,850 +109,683 @@ Maryam came to the doorway.
 
 "What do you ask?"
 
-Amram shifted.
+Malki looked from Maryam to Daniel, then back to the lintel as if the wood might provide a safer way in.
 
-He was not a foolish man, Daniel saw.
-Nervous, perhaps.
-Tired.
-His eyes had that unsettled brightness people brought when rumor had made them brave enough to be stupid.
+"People are asking who he is."
 
-"People are saying many things."
+Mara said, "People can ask in person if their legs work."
 
-"People do," Maryam said.
+Malki flushed.
 
-"They ask who he is."
-
-The courtyard changed.
-
-Not loudly.
-
-Like wood under load.
-
-Daniel kept his eyes on the lintel.
-
-The old question opened in him: Who do people say that I am?
-
-No.
-
-Not yet.
-
-Not like this.
-
-Mara stepped down from the threshold and stood beside him without touching.
-
-Amram continued, encouraged or trapped by his own momentum.
-
-"Some say prophet.
-Some say healer.
+"They ask because more people come.
+From the lake.
+From the bread tables.
+From the hill.
+From houses where someone was sick.
+From rooms where women say things men do not know how to answer.
+From Jerusalem travelers now too.
+Some say prophet.
 Some say teacher.
-Some say son of a builder with strange knowledge.
-Some say the river man knew him.
-Some say the lake obeyed him.
-Some say he is dangerous.
-Some say he is what we need."
-
-Daniel wanted to leave.
-
-The lintel lay between them, split nearly through.
-
-Amram swallowed.
-
-"So we ask."
-
-Maryam said, "Who is we?"
-
-Good.
-
-Always first: who carries the question?
-
-Amram looked at his cousins, then at the road.
-
-"Men near the market.
-Some from the hill.
-Some from the lake.
-Natan's students.
-Others."
-
-Natan, unfortunately present with a broken tablet frame, closed his eyes.
-
-Mara said, "Cowards sent a lintel."
-
-Amram flushed.
-
-Daniel almost laughed.
-
-Maryam did not.
-
-She asked, "What answer do they want?"
-
-Amram stared.
-
-"Truth."
-
-Ruth, seated in shade with Asa and a bowl of something she had declared inadequate, snorted.
-
-"Men never send another man to ask for truth when appetite will do."
-
-Amram looked at her and made the correct choice not to answer.
-
-Maryam repeated, "What answer do they want?"
-
-He hesitated.
-
-"Some want him to say he is a teacher."
-
-Natan opened his eyes.
-
-"Some?"
-
-"Some want him to say he is not."
-
-Daniel looked up then.
-
-Amram's face was honest in its fear.
-
-That mattered.
-
-"Why?" Daniel asked.
-
-Amram answered too quickly.
-
-"So they know whether to listen."
-
-"No," Maryam said.
-
-Everyone looked at her.
-
-She stepped closer to the lintel.
-
-"People listen before they know what to call the one speaking.
-Names come after usefulness, fear, hope, or offense.
-Why do they want a name now?"
-
-Amram looked at the wood.
-
-"Because more people come."
-
-Yes.
-
-There it was.
-
-Crowds.
-Bread.
-Water.
-Healing.
-Demons.
-Hills.
-Marks.
-Fishermen.
-Teachers.
-Debt.
-Rome.
-Women with authority.
-Men embarrassed.
-Children using marks.
-A household becoming roads.
-
-Amram said, "Some want order.
-Some want warning.
-Some want to stop it.
-Some want to join it.
-Some want to use it."
-
-At least he was no longer pretending.
-
-Yosef said, "Then the lintel is not the only thing failing under hidden load."
-
-Mara whispered, "Very good."
-
-Daniel whispered back, "Do not."
-
-"Too late."
-
-Amram looked at Daniel.
-
-"What do you say?"
-
-The whole courtyard waited.
+Some say healer.
+Some say builder's son.
+Some say trouble.
+Some say the river man knew.
+Some say the lake obeyed.
+Some say bread obeyed.
+Some say he refuses to say because the answer is too large.
+Some say he refuses because there is no answer."
 
 Daniel looked at the lintel.
 
-The split, the old plaster, the heavier door, the rot at one end, the paint over damage.
-A structure asked to carry a new load because no one wanted to admit the old member was done.
+The split looked back.
 
-He placed his hand on the wood.
+Yosef's hand remained on the wood.
 
-"I say this cannot be a lintel."
+Maryam asked, "And what do you say?"
 
-Amram stared.
+Malki swallowed.
 
-Daniel continued, "If you put it back over a doorway because you like that it held before, it will fall.
-If you paint it again, it will still fall.
-If you argue about what to call it, it will still fall.
-The right name is not enough."
+"I say I do not know.
+That is why I brought the lintel."
 
-Mara's mouth tightened in approval.
+Mara's expression changed.
 
-Daniel looked at Amram.
+Not softer.
 
-"If they ask who I am because they need a lintel for what is happening, tell them no."
+More attentive.
 
-Silence.
+Good answer, or at least honest enough to inspect.
 
-Maryam watched him carefully.
+Daniel said, "Who sent you?"
 
-Amram said, "No?"
+"No one."
 
-"No.
-I will not be the beam they put over every doorway they are afraid to rebuild."
+Mara clicked her tongue.
 
-Yosef's face changed.
+Malki winced.
 
-The old death moved under Daniel's ribs.
+"Several men asked.
+No one sent."
 
-He kept going.
+"Names," Maryam said.
 
-"If there is work, bring work.
-If there is hunger, bring food and routes.
-If there is debt, bring terms and witnesses.
-If there is sickness, bring those who have seen it before.
-If there is teaching, bring the people who carry the result and a way to leave.
-If there is a question, bring the room where it matters."
+He gave them.
 
-His voice had become too steady.
+Some market men.
+One relation of Elior's household.
+A scribe who had heard Natan speak.
+Two men who disliked the bread routes because their wives had begun asking where grain went.
+One fisherman passing through who had said, with unhelpful confidence, that Yeshua sank and therefore was probably honest.
+Dalia's influence traveled strangely.
 
-Dangerous.
+Maryam listened.
 
-He softened it before it hardened into performance.
+"What do they want the answer to do?"
 
-"And if they ask my name, they already know what to call me when work is before us."
+Malki stared.
 
-Amram whispered, "Which is?"
+"What?"
 
-Daniel looked at Yosef.
+"What do they want the answer to do?"
 
-Yosef answered.
+He looked toward his cousins.
 
-"My son."
+One cousin shrugged, as if meaning could be unloaded onto someone else.
 
-Maryam said, "My son."
+Malki said, "Some want order.
+Some want warning.
+Some want to know whether to stop people coming.
+Some want to know whether to join.
+Some want to know whether to use what he says."
 
-Mara said, "Annoying."
+Daniel closed his eyes.
 
-Erel said, "Yosef's son."
-
-Ruth said, "Not enough to excuse foolishness."
-
-Asa said, "Man with poor water balance."
-
-The courtyard breathed.
-
-Daniel smiled despite himself.
-
-Amram did too, faintly.
-
-Natan said quietly, "And if they ask beyond that?"
-
-Daniel looked at him.
-
-Hook.
-
-Door.
-
-Future.
-
-He said, "Then ask what they want the answer to carry."
-
-Maryam nodded.
-
-Good.
-
-Not safe.
-
-Good.
-
----
-
-The answer traveled badly.
-
-Of course.
-
-Version one: Daniel refused to say who he was.
-
-True.
-
-Version two: Daniel said he was nobody.
-
-False.
-
-Version three: Daniel said he was only Yosef's son.
-
-Not false, not complete, useful enough to be dangerous.
-
-Version four: Daniel said people wanted him to be a beam, which made no sense and therefore became popular among carpenters.
-
-Version five: Daniel called the market men cowards who sent a lintel.
-
-That was Mara's fault.
-
-Version six: Asa called him man with poor water balance.
-
-This one spread fastest among lake people, for which Daniel gave thanks.
-
-But the question did not disappear.
-
-It had found its shape.
-
-Who is he?
-
-People asked it in markets, at ovens, near the lake, beside repaired thresholds, after bread tables, during debt reviews, over fever mats, around marks scratched into doors and walls.
-
-Who is he to answer?
-
-Who is he to refuse?
-
-Who is he to make women speak first?
-
-Who is he to say no spectators?
-
-Who is he to tell hungry people God is not fooled by inventory?
-
-Who is he to be silent when Rome is named?
-
-Who is he to be followed?
-
-Who is he to say he is not followed?
-
-Who is he if he will not name himself?
-
-Names mattered.
-Roles mattered.
-Authority did not vanish because Daniel disliked it.
-Refusing titles could become its own kind of power: the humble man people trusted more because he refused what others wanted.
-Maryam warned him of this.
-
-"Refusal shines too," she said.
-
-Daniel hated that sentence for two days.
-
-Then admitted it was true.
-
-Natan came with a broken latch and a question.
-
-Good.
-
-Latch first.
-
-The latch belonged to a reading room where students came and went.
-It had begun sticking because the door had sagged slightly and because Natan had ignored it while thinking about more abstract doors.
-Mara said this proved the universe had comic timing.
-Natan accepted the charge.
-
-As Daniel and Yosef adjusted the latch, Natan said, "I heard your lintel answer."
-
-"I am sorry."
-
-"It was useful."
-
-"I am more sorry."
-
-Natan smiled faintly.
-
-Then sobered.
-
-"Some say refusing a title lets others choose one for you."
-
-Daniel said nothing.
-
-Yosef worked silently.
-
-Natan continued, "If you do not say teacher, they will say prophet.
-If not prophet, healer.
-If not healer, threat.
-If not threat, fraud.
-People dislike an unnamed source of movement."
-
-Daniel checked the latch seating.
-
-"Is the latch asking this, or you?"
-
-Natan looked at the latch.
-
-"Both."
-
-Progress.
-
-Daniel said, "What do you want?"
-
-Natan inhaled.
-
-"I want language that protects the work."
-
-Maryam, listening from the doorway, said, "And?"
-
-He closed his eyes.
-
-"I want language that protects my place near it."
-
-Good.
-
-There.
-
-Honesty with teeth.
-
-Mara, nearby, whispered, "He improves and becomes worse."
-
-Daniel agreed.
-
-Natan opened his eyes.
-
-"If I can name you, I can explain why I come.
-Why I send students.
-Why I write.
-Why I change how I teach.
-Without a name, I look like a man drawn by rumor."
-
-"You are a man drawn by rumor," Mara said.
-
-He bowed his head.
-
-"Yes."
-
-Daniel liked him for not denying it.
-
-Maryam said, "Then begin there."
-
-Natan looked at her.
-
-"With shame?"
-
-"With truth."
-
-Yosef tested the latch.
-It clicked.
-
-Better.
-
-Natan said, "What may I call you?"
-
-Daniel's name sat in his chest.
-Son.
-Builder.
-Teacher.
-No.
-Not teacher.
-Friend? Dangerous.
-Questioner? Worse.
-Repairer? Too small and too large.
-
-He said, "When you speak of the work, do not make me the subject."
-
-Natan frowned.
-
-"That is not a name."
-
-"No."
-
-"It may not be enough."
-
-"I know."
-
-Daniel tried again.
-
-"Say: people are learning to ask better questions around work."
-
-Natan considered.
-
-"That is terrible as proclamation."
-
-"Good."
-
-"Useful as protection."
-
-"Maybe."
-
-Maryam nodded.
-
-Yosef said, "Also say who taught what."
-
-Natan looked at him.
-
-"Meaning?"
-
-"Maryam for rooms and shame.
-Hanina for hunger.
-Dalia for shore work.
-Ruth for spectators.
-Mara for marks and turning around.
-Erel for learning before pride hardens.
-Asa for fit.
-Tobiah for small repairs.
-Yair for names before wounds.
-The objects for load."
-
-Natan stared.
-
-Daniel did too.
-
-Yosef returned the latch to its owner.
-
-"What?" Yosef asked.
-
-Mara whispered, "He has become dangerous."
-
-Maryam smiled.
-
-Natan said slowly, "You want authority distributed."
-
-Yosef shrugged.
-
-"It already is.
-Say it true."
-
-Daniel almost laughed.
-
-Say it true.
-
-As if that were easy.
-
-Natan wrote, with permission:
-
-Do not name one teacher where many carry sight.
-
-Daniel looked at it.
-
-"Good."
-
-"Dangerous," Mara said.
-
-Natan nodded.
-
-"Both."
-
----
-
-The next question came from Dalia.
-
-Not in person.
-
-By rope.
-
-A trader arrived from the lake carrying a short length of rope tied with three knots and a message wrapped around it.
-Dalia disliked writing but used it when distance required.
-
-The message read:
-
-Men here ask if he is ours.
-I say no.
-Some dislike that.
-Some like it too much.
-Send better words.
-
-Daniel read it twice.
-
-Then a third time.
-
-Is he ours?
-
-Ownership again.
-
-Care becoming possession.
-Rescue becoming claim.
-Work becoming faction.
-Lake people versus hill people versus market people versus Natan's students versus Yosef's household.
-If Daniel was "ours," then his words belonged to a group.
-His refusal protected one community and offended another.
-His presence became proof of favor.
-His absence became betrayal.
-
-Maryam read the message and closed her eyes.
-
-Yosef read the rope, not the message first.
-
-"Three knots."
-
-"Meaning?"
-
-"Ask Dalia."
-
-Mara inspected it.
-
-"Could mean urgency.
-Or Dalia wanted the messenger unable to lose it.
-Or she was angry and tied hard."
-
-Likely all.
-
-Daniel sat with the rope in his hands.
-
-"What do I say?"
-
-No one answered quickly.
-
-Good.
-
-Hanina arrived and read the message.
-
-"Say hungry people are not owned by ovens."
-
-Everyone looked at her.
-
-She shrugged.
-
-"Too bread?"
-
-"No," Maryam said.
-"Good."
-
-Asa, present for brake adjustment, said, "Say a board belongs partly to the one who rides it, partly to the one who fixes it, and mostly to the ground it crosses."
-
-"Absolutely not," Mara said.
-
-Asa grinned.
-
-Ruth said, "Say men who ask if a person is theirs should first ask who they are neglecting while making claims."
-
-Also good.
-
-Yosef said, "Say work returns where needed.
-Not where claimed."
-
-Maryam nodded.
-
-Daniel touched the rope.
-
-"Say: I am not the lake's.
-I am not the hill's.
-I am not the market's.
-I am not Natan's students'.
-I am not a banner.
-If work comes, bring work.
-If work remains there, do it there.
-If you need me, ask who else can see first."
-
-Mara said, "Strong."
-
-"Too strong?"
-
-"Not enough goats."
-
-Good.
-
-Natan, who had somehow become present because questions had gravity, said, "And if they ask whose you are?"
-
-Daniel went still.
-
-Maryam looked at him.
-
-Yosef did too.
-
-Mara stopped moving.
-
-Whose are you?
+There it was.
 
 Not who.
 
-Whose.
+Use.
 
-The old answer could be God.
+Yosef tapped the lintel.
 
-True? Dangerous.
-Too large.
-Too easy for men to weaponize.
-Too close to public revelation.
-Too close to the name still withheld.
-Too close to story.
-
-He looked at Maryam.
-
-She did not answer for him.
-
-Yosef did not.
-
-Daniel said, carefully, "I belong first to the work of love before me."
-
-Mara made a face.
-
-"Too polished."
-
-"Yes."
-
-"Also vague."
-
-"Yes."
-
-Maryam said, "And to those who love you."
-
-Daniel breathed.
-
-Yes.
-
-That mattered.
-
-Yosef said, "And to yourself."
-
-Daniel looked at him, surprised.
-
-Yosef's face was steady.
-
-"You are not only what others need."
+"This cannot be a lintel."
 
 The courtyard quieted.
 
-Daniel looked down at the rope.
+Malki looked at him.
 
-That sentence was harder than theology.
+Yosef continued, "You may call it lintel.
+You may paint it as lintel.
+You may remember years it held as lintel.
+If you put it over a door now, it will not carry because the name is right."
 
-He added, "Say also: no need owns a person entirely."
+Daniel breathed.
 
-Ruth nodded.
+The wood had answered first.
 
-"That one should travel."
+Good.
 
-Maryam said, "Carefully."
+He looked at Malki.
 
-They sent Dalia:
+"What do they want me to carry?"
 
+Malki opened his mouth.
+
+Closed it.
+
+Daniel said, "If they want a word that lets them stop looking at hunger, debt, illness, fear, women carrying rooms, men refusing correction, children walking toward rumor, then no word will help.
+If they want a beam over every doorway they are afraid to rebuild, I refuse.
+I am not that beam."
+
+Mara's eyes sharpened.
+
+Maryam looked at him.
+
+Yosef's face did not move, but his hand pressed the lintel.
+
+Daniel continued, smaller.
+
+"If they bring work, we can inspect work.
+If they bring hunger, feed first.
+If they bring a debt, bring witnesses.
+If they bring sickness, bring the person and the room, not a story.
+If they bring teaching, ask who can leave.
+If they bring fear, do not let it decide alone."
+
+Malki listened.
+
+One cousin looked disappointed because this was not a portable title.
+
+Good.
+
+The other cousin looked relieved.
+
+Better.
+
+Malki said, "And if they ask what to call you?"
+
+Daniel almost laughed.
+
+That was the smallest part.
+
+"Yeshua," he said.
+
+The name felt ordinary in his mouth and not ordinary at all.
+
+Maryam's face softened because to her it was first the name of her son, not a category.
+Yosef nodded because it was the name he called when he needed another hand at the bench.
+Mara smirked because she had used it in anger, fear, and affection and considered all three proper.
+
+Daniel added, "But if the name becomes a way not to do the work, throw it away until work returns."
+
+Mara said, "Not the person.
+The use."
+
+"Yes," Daniel said.
+"Not the person.
+The use."
+
+Maryam said, "A name can call someone home.
+It can also summon a crowd.
+Ask which is happening."
+
+Daniel turned to her.
+
+That was better.
+
+Malki repeated it softly.
+
+"A name can call someone home.
+It can also summon a crowd."
+
+"Do not make that shiny," Mara warned.
+
+Malki looked alarmed.
+
+"I will try?"
+
+"Try with dirt."
+
+Yosef touched the lintel again.
+
+"What will you do with this?"
+
+Malki looked at the wood.
+
+"Not lintel."
+
+"Good."
+
+"Cut the sound section?"
+
+"Maybe."
+
+"With you?"
+
+Yosef looked at him.
+
+"With Erel."
+
+Erel's head snapped up.
+
+Malki did not hide disappointment fast enough.
+
+Mara said, "Careful.
+Your face is showing."
+
+Daniel said, "Erel sees the crack."
+
+Erel swallowed.
+
+Malki looked at the boy, then at the lintel.
+
+"Then with Erel."
+
+Good.
+
+The first identity question became a lintel lesson.
+
+This was probably the best possible outcome and therefore temporary.
+
+---
+
+By afternoon, the story had already changed.
+
+Malki had not lied on purpose.
+
+This was important and useless.
+
+He reported that Yeshua said his name was ordinary and dangerous only if used badly.
+Someone else heard that he refused all titles.
+Someone else said he accepted his name but denied being a beam, which became confusing because no one had asked whether he was a beam.
+One cousin told the market that old lintels were dangerous, which started a separate argument about storage doorways.
+The fisherman repeated that Yeshua sank, but added that his name should not be used as rope unless tied properly, which no one understood and Dalia would likely deny.
+
+By evening, the versions had multiplied:
+
+Yeshua refused to answer.
+
+Yeshua answered only with wood.
+
+Yeshua said names break doors.
+
+Yeshua said he was not the beam.
+
+Yeshua said bring work, not stories.
+
+Yeshua said throw away his name.
+
+Yeshua said his name could call him home.
+
+Yeshua said crowds were dangerous.
+
+Yeshua said all lintels are suspect.
+
+Mara listened to the reports and rubbed her forehead.
+
+"All lintels are suspect may be my favorite, but it is not ideal."
+
+Maryam said, "Refusal shines."
+
+Daniel nodded.
+
+"I know."
+
+"No," she said.
+"You are learning."
+
+Fair.
+
+Natan arrived at dusk with a broken latch.
+
+This was becoming acceptable behavior.
+
+He set it on the table before greeting anyone.
+
+Mara looked at him.
+
+"Good.
+You may speak."
+
+He bowed to the latch first, which made Erel laugh and Daniel worry about Natan's adaptability.
+
+The latch had come from a chest used for tablets.
+It did not close because the catch had worn shallow and the hinge had shifted.
+Daniel suspected Natan had chosen it deliberately.
+
+Maryam asked, "Question?"
+
+Natan looked at the latch.
+
+"What do I call the work when speaking to those who ask?"
+
+Daniel sighed.
+
+Mara said, "Dangerous latch."
+
+Natan nodded.
+
+"Yes."
+
+He placed both hands on his knees.
+
+"I do not ask what to call you.
+Your name is your name.
+People know it.
+That is not the question.
+The question is what they hear around it.
+If I say Yeshua teaches, they gather for sayings.
+If I say Yeshua repairs, they bring objects.
+If I say the rooms teach, they say rooms do not speak.
+If I list all the people who carry sight, they stop listening before I finish.
+If I refuse to name anyone, Barak's kind name for us."
+
+Barak had not yet entered the story fully, but his kind existed in every market: men who preferred clean handles.
+
+Daniel looked at the latch.
+
+"It does not close because the catch is worn and the hinge shifted."
+
+Natan nodded slowly.
+
+"A name is the catch?"
+
+"No," Mara said.
+"Do not become immediate."
+
+Natan bowed his head.
+
+Daniel said, "A name can close too easily.
+It can make people think the chest is secured when the hinge is bad."
+
+Natan looked at the latch.
+
+"So: do not let the name close the question."
+
+"Yes."
+
+Maryam said, "Say what broke first."
+
+Natan lifted his head.
+
+"What broke first?"
+
+"If the issue is hunger, begin with hunger.
+If debt, begin with debt.
+If storm, begin with storm.
+If the question is teaching, ask who can leave.
+If they ask who teaches, name the people who carry that part.
+If they insist on one name, ask why one is needed."
+
+Yosef added, "Objects before titles."
+
+Mara said, "And if they say Yeshua?"
+
+Daniel waited for the flinch.
+
+It came, but smaller.
+
+He said, "Ask what they want the name to do."
+
+Natan wrote that down.
+
+Mara reached over and tapped the tablet.
+
+"With whose name?"
+
+Natan blinked.
+
+"Maryam's? Yours? His?"
+
+"Try: said in the room where the latch would not close."
+
+Natan smiled despite himself.
+
+"Good."
+
+"No.
+Less good.
+More useful."
+
+He corrected the wording.
+
+The latch was repaired.
+
+The question remained worn but less hidden.
+
+---
+
+Dalia's message arrived two days later by a lake boy with excellent lungs and terrible patience.
+
+The boy handed over a coil of short rope, one fish wrapped in leaves, and a message spoken exactly because Dalia had trained him under threat.
+
+"Men here ask if he is ours.
+I say no.
+Some dislike that.
+Some like it too much.
+Send better words."
+
+The boy inhaled.
+
+Then added, "Dalia says if Yeshua answers with poetry, she will come inland and throw a net over him."
+
+Mara clasped her hands.
+
+"I miss her."
+
+Daniel took the rope.
+
+Too short for storm work.
+Too good to discard.
+A teaching object.
+
+Yosef inspected it.
+
+"Sound rope.
+Wrong length."
+
+Maryam smiled faintly.
+
+"Useful."
+
+They gathered around it.
+
+Natan, unfortunately, had not left.
+
+He prepared to write.
+
+Mara glared.
+
+He set the tablet down.
+
+Progress.
+
+Daniel said, "The lake does not own me."
+
+"Obvious," Mara said.
+
+"Necessary."
+
+Yosef said, "Nor does need."
+
+Maryam nodded.
+
+"No need owns a person entirely."
+
+Daniel looked at her.
+
+Again.
+
+She kept doing that.
+
+Mara said, "Work returns where needed, not where claimed."
+
+Good.
+
+Daniel said, "Ask who else can see first."
+
+Yosef nodded.
+
+"Because if they wait for you, they become less safe."
+
+Maryam added, "If care becomes ownership, cut the rope."
+
+Mara lifted the too-short rope.
+
+"With what?"
+
+Maryam gave her a look.
+
+"With correction."
+
+"Less satisfying."
+
+"Often."
+
+They sent back:
+
+Yeshua is not the lake's possession.
 Work returns where needed, not where claimed.
-
 No need owns a person entirely.
-
 Ask who else can see first.
+If care becomes ownership, cut the rope.
 
-And, because Mara insisted and Daniel was too tired to resist, a small drawing of a fish holding a rope and looking suspicious.
+Mara added a fish with a suspicious eye and a rope around no one.
 
-Dalia's response came four days later:
+Daniel objected to the fish.
+
+The boy said Dalia liked fish.
+
+This was unanswerable.
+
+Dalia's reply came a week later:
 
 Better.
 Fish unnecessary but accurate.
 
-Mara framed this as victory.
-
 ---
 
-The well-dressed Elior returned during this period with a question everyone expected and no one wanted.
+Elior came next with Tirzah and a cracked grain scoop.
 
-He brought a grain scoop with a cracked handle.
+This was already suspicious because Elior had learned to bring objects and Tirzah had learned not to let him bring them alone.
 
-Good.
+The scoop was good wood, worn thin along one lip.
+It still worked if one ignored the spill.
+Tirzah did not ignore spill.
+This had become one of her best qualities.
 
-Progress had taken root.
+Elior set it down.
 
-After the scoop was repaired, after Tirzah confirmed the household workers had eaten, after Maryam allowed conversation, Elior said, "There are men with influence who would help."
+"Men with influence want to meet."
 
-Daniel said, "No."
+Mara said, "Men with influence often want many things.
+Most can be reduced by chores."
 
-Elior paused.
+Tirzah said, "They say they want to help."
 
-"You do not know what I will ask."
-
-"Still no."
-
-Tirzah smiled faintly.
-
-Elior tried again.
-
-"Food routes require grain.
-Debt review requires witnesses with standing.
-Tables require protection from interference.
-If certain men support the work--"
-
-"No."
-
-Maryam said, "Let him finish."
-
-Daniel looked at her.
-
-She returned the look.
-
-He sat back.
-
-Elior continued, careful now.
-
-"They want to meet you."
-
-"No."
-
-Maryam did not correct this one.
-
-Elior held up a hand.
-
-"Some are sincere."
-
-"Some?"
-
-"Some are curious.
-Some cautious.
-Some want to know if you threaten order.
-Some want credit.
-Some want to prevent worse men from controlling the story."
-
-Natan, present with a hinge, said quietly, "That last concern may be real."
-
-Daniel hated him for being right.
-
-Elior said, "If you do not speak with men who hold power, they will speak without you."
-
-Yosef said, "They already do."
-
-"Yes."
-
-Ruth said, "Power always arrives late and asks to be thanked for noticing."
-
-Elior accepted the blow.
-
-"Yes."
-
-Maryam asked, "What do they want to call him?"
+Maryam asked, "Help what?"
 
 Elior hesitated.
 
-There it was.
+"The work."
 
-"Rabbi," he said.
+"What work?"
 
-The word landed strangely.
+He looked at the scoop.
 
-Teacher.
+"That is the question."
 
-Respectable.
-Dangerous.
-Not prophet.
-Not messiah.
-Not healer.
-A name that could protect in some rooms and trap in others.
-A title Natan had not used directly because he knew better.
-Men with influence would like it because it placed Daniel in a known category, one that could be honored, managed, debated, invited, opposed.
+Daniel waited.
 
-Daniel felt the future lean closer.
+Elior continued, "Some have heard the bread routes.
+Some have heard of the hill.
+Some have heard of the storm.
+Some have heard your name and ask whether you are rabbi, prophet, organizer, danger, reformer.
+Some say if Yeshua is gathering people, better serious men guide what happens before fools or Rome notice."
 
-"No."
+The room cooled.
 
-Elior nodded as if he expected it.
+Rome was not in the courtyard, but the word made space for itself.
 
-Tirzah said, "What do you fear in the word?"
+Maryam's face changed only slightly.
 
-Daniel looked at her.
+"Serious men?"
 
-Good question.
+Elior swallowed.
 
-"That people will listen to me instead of the work."
+"I repeat, not endorse."
 
-"Already happening," Mara said.
+Tirzah said, "He endorsed yesterday."
 
-"That men will use the title to move women aside."
+Elior closed his eyes.
+
+"Yes.
+Briefly.
+Then she corrected me."
+
+Good.
+
+Daniel picked up the grain scoop.
+The worn lip let grain spill even when the hand was steady.
+
+"What do they want?"
+
+Elior sighed.
+
+"Access.
+Assurance.
+Perhaps influence.
+Perhaps to prevent disorder.
+Perhaps to use you.
+Perhaps genuinely to help.
+Perhaps all."
+
+Honest.
+
+Yehudah had not yet arrived in the narrative, but Daniel already felt the future shape of accounts, purses, leverage, men who understood systems.
+
+"What do they call me?" Daniel asked.
+
+Maryam looked at him.
+
+He had asked it before she could.
+
+Maybe that was progress.
+
+Elior hesitated.
+
+"Yeshua, mostly.
+Some say teacher.
+Some say rabbi.
+A few say promised one, but carefully.
+Some say Galilean as insult, though you are not always convenient to insult that way.
+One says Mary's son when he wants to be rude."
+
+Yosef's jaw tightened.
+
+Maryam's eyes sharpened.
+
+Daniel held up a hand.
+
+Not because it did not hurt.
+
+Because it did.
+
+The ordinary name could be stretched by affection or contempt.
+Mary's son could be truth, insult, anchor, dismissal.
+Names did not carry one load.
+
+Maryam said, "If they call him my son to make him smaller, they have misunderstood sons."
+
+Mara whispered, "Excellent."
+
+Tirzah nodded.
+
+Elior looked as if he might write it down but wisely did not.
+
+Daniel said, "I will not meet serious men so they can decide whether the work is safe to own."
+
+Elior nodded.
+
+"Good."
+
+"But?"
+
+"There is always but," Mara said.
+
+Daniel continued, "If they want to help, repair grain terms.
+Protect debt witnesses.
+Feed workers.
+Listen to women already carrying the work.
+Make rooms safer.
+Make their own houses honest.
+Bring objects, not appetite."
+
+Tirzah smiled.
+
+Elior looked both relieved and disappointed.
+
+Good.
+
+Maryam asked, "What do you fear in the word rabbi?"
+
+Daniel thought.
+
+"That people listen to me instead of the work."
+
+Mara said, "Yes."
+
+"That men use title to move women aside."
+
+Hanina, who had arrived halfway through because the smell of influence offended her, said, "Already happens."
+
+"That students gather for words and leave rooms unchanged."
+
+Natan, also present now because the universe had lost boundaries, said, "Possible."
+
+"That people who need help wait for me."
 
 Maryam nodded.
-
-"Already try," Hanina said.
-
-"That students will gather for words and leave rooms unchanged."
-
-Natan lowered his head.
-
-"That people who need help will wait for me."
-
-Yosef's hand tightened.
 
 "That I will like it."
 
@@ -948,839 +793,717 @@ Silence.
 
 Good.
 
-Truth had finally reached the beam.
+Mara did not joke.
 
-Daniel said again, softer, "No."
+Better.
 
-Tirzah nodded.
+Tirzah touched the cracked scoop.
 
-Elior said, "Then what do I tell them?"
+"Then tell them the scoop was repaired by many hands and still cannot carry grain if the storehouse is unjust."
 
-Maryam answered.
+Daniel stared at her.
 
-"Tell them if they want to help, they can repair grain terms, protect debt witnesses, feed workers, and listen to women already carrying the work."
+"Yes."
 
-Elior smiled despite himself.
+Mara said, "That one is hers."
 
-"They will not like that."
+Natan wrote it with Tirzah's name.
 
-"No," Maryam said.
+The scoop was repaired with a new lip and a warning: scoop spill may be tool failure or hand failure; inspect both.
 
-"Good," Ruth added.
+Elior took the message back.
 
-Natan said, "And if they still ask for the teacher?"
+The serious men did not like it.
 
-Mara pointed at the broken scoop.
-
-"Tell them the scoop was repaired by many hands and still cannot carry grain if the storehouse is unjust."
-
-Daniel looked at her.
-
-She stared back.
-
-"What?"
-
-"That is very good."
-
-She looked annoyed.
-
-"I know.
-I have been trapped near you people too long."
-
-Elior repeated it slowly, committing it to memory.
-
-Daniel groaned.
-
-Mara smiled.
+Good.
 
 ---
 
-The question reached home in another form.
+Erel asked his question that evening.
 
-Not from market men.
+It had been waiting behind his teeth since the lintel.
 
-From Erel.
-
-This was worse.
-
-He had been quiet for two days.
-Quiet in Erel meant something had either hurt him or matured him, and both required attention.
-Daniel found him near the workbench sorting pegs that did not need sorting.
+He found Daniel in the courtyard after the others had gone, sanding a peg that did not need sanding.
+Daniel recognized the behavior and set down his own tool.
 
 "What is broken?"
 
-Erel glanced up, then down.
+Erel looked up.
 
-"Nothing."
+"Maybe me."
 
-"Liar."
+"No.
+Begin again."
 
-Erel smiled weakly.
+He smiled faintly.
 
-Daniel sat beside him.
-
-"Do you want Maryam?"
-
-"No."
-
-"Yosef?"
-
-"No."
-
-"Mara?"
-
-Erel looked horrified.
-
-"Good answer."
-
-The boy sorted three pegs.
-
-Then said, "Am I following you?"
-
-Daniel's chest tightened.
-
-"What do you mean?"
-
-"I come here.
-I learn.
-I carry things.
-I do what you ask sometimes.
-I want to see what you see."
+"I know."
 
 Daniel waited.
 
-Erel continued, words faster now.
-
-"I did not leave home badly.
-My mother knows.
-Yosef teaches me.
-Maryam feeds me.
-Mara insults me.
-I can leave.
-I think.
-But when people say followers, I feel..." He struggled.
-"Proud.
-Then afraid.
-Then ashamed because proud."
-
-Daniel said nothing too quickly.
-
-Erel deserved more than reflex.
-
-"Do you want to belong to something?" Daniel asked.
-
-Erel looked down.
+Erel said, "People ask what to call you.
+I know your name."
 
 "Yes."
 
-"Do you want that something to make you larger?"
+"Yeshua."
 
-A smaller nod.
+The name came from him simply, with no old-world weight.
+That helped and hurt.
 
-"Do you want me to tell you who to be?"
-
-"No." Then, after a pause, "Sometimes."
-
-Honest.
-
-Hard.
-
-Daniel picked up a peg.
-
-"What work brought you here first?"
-
-"My anger."
-
-"Then?"
-
-"Stools.
-Doors.
-Smoke.
-Hinges.
-Boats."
-
-"What keeps you here now?"
-
-Erel thought.
-
-"Seeing.
-Being useful.
-People not only seeing that I was angry."
-
-Good.
+Erel continued, "But when people ask, I do not know what answer keeps it true."
 
 Daniel nodded.
 
-"Then maybe do not ask am I following Daniel.
-Ask what work am I learning to carry, and can I leave without losing myself."
+"What do you want to answer?"
 
-Erel took that in.
+Erel looked down at the peg.
 
-"Can I?"
+"Yeshua."
 
-"Yes."
+"That is true."
 
-The answer had to be immediate.
+"Too little."
 
-Erel looked at him.
+"Maybe."
 
-Daniel continued, "You can leave angry, grateful, bored, grown, wrong, right, with tools, without permission from my pride."
+"Yosef's son."
 
-Erel smiled faintly.
+"True."
 
-"Your pride gives permissions?"
+"Maryam's son."
 
-"It tries."
+"True."
 
-"Should I ask Mara?"
+"The one who taught me to check the peg twice."
 
-"Never ask Mara about my pride unless you have an afternoon."
+Daniel smiled.
 
-Erel laughed.
+"Also true."
+
+"Teacher?"
+
+Daniel did not answer quickly.
+
+Erel saw.
+
+"I know.
+Dangerous."
+
+"Not always wrong."
+
+Erel looked surprised.
+
+Daniel continued, "If teacher means someone whose words replace your sight, wrong.
+If teacher means someone who helps you see and can be corrected, perhaps."
+
+Erel nodded slowly.
+
+"Am I following you?"
+
+They had had this question before in other forms.
+It returned wearing new sandals.
+
+"What do you think?"
+
+"I think sometimes yes.
+Sometimes I am following the work.
+Sometimes Yosef.
+Sometimes Maryam.
+Sometimes Mara, though I deny it."
+
+"Wise."
+
+"Sometimes I follow because I want to be near whatever matters."
+
+"That one is dangerous."
+
+"I know."
+
+"Do you?"
+
+"More than before."
 
 Good.
 
-Then he sobered.
+Daniel said, "Ask not: am I following Yeshua? Ask: what work am I learning to carry, and can I leave without losing myself?"
 
-"What if I do not want to leave?"
+Erel breathed.
 
-"Then stay for work.
-Not for becoming larger by standing near me."
+"I can leave?"
 
-Erel nodded.
+"You must be able to."
 
-After a while, he said, "Yosef is more my teacher than you."
+"Even if I stay?"
 
-Daniel pretended offense.
+"Especially if you stay."
 
-"Obviously."
+He looked at the peg.
 
-Erel smiled.
+"Then if someone asks what to call you, I might say: Yeshua, who is not the work."
 
-"And Maryam."
+Daniel felt that land.
+
+Good.
+
+Hard.
 
 "Yes."
 
-"And Mara, but not officially."
+Erel smiled, small and relieved.
 
-"No one survives official Mara."
+"And if they ask what to call me?"
 
-He laughed again.
+Daniel looked at him.
 
-Then he said, "Then I am not your follower."
+"What would you say?"
 
-Daniel felt relief.
+"Erel, learning work."
 
-Also grief.
+"Good."
 
-This was complicated.
+"Not follower?"
 
-"No," Daniel said.
-"You are Erel, learning work."
+"Not as first name."
 
 Erel nodded.
 
 "Good."
 
-He sorted one more peg.
-
-Then asked, "Can I still come tomorrow?"
-
-Daniel smiled.
-
-"If there is work."
-
-"There is always work."
-
-"Unfortunately."
+He went back to sanding, but now the peg needed it.
 
 ---
 
-Mara's question came later and was less gentle.
+Mara asked the better question after midnight.
 
-"You know people will not stop."
+Daniel found her on the low wall with a piece of charcoal and no permission.
+This had stopped surprising anyone.
 
-They were walking to check the road mark near the lower channel.
-Rain had washed part of it away.
-The goat remained, because goats survived conditions that erased useful instructions.
+She was drawing a revised mark for "name becoming crowd." It showed a mouth calling a name, several feet running toward it, and an object left behind.
+It was annoyingly good.
 
-"Stop what?"
-
-"Asking who you are."
+"That is useful."
 
 "I know."
 
-"Do you?"
+"What is the forbidden meaning?"
 
-"I know intellectually."
+"That names are bad."
 
-"Your intellect is not always informed."
+"Good."
 
-"Thank you."
+"What is the intended meaning?"
 
-They walked.
+"Ask what the name is summoning."
 
-Mara kicked a stone into the ditch.
+"Good."
 
-"You answer with work because work is true.
-But some questions are not asking for work."
-
-"I know."
-
-"Do you?"
-
-He sighed.
-
-"What do you want?"
-
-She stopped.
+She set down the charcoal.
 
 "Who are you when no one needs anything?"
 
-The question hit harder than Amram, Natan, Elior, Dalia, or Erel.
+Daniel laughed once.
 
-Daniel looked at her.
+Then stopped.
 
-Mara's face was serious, which remained unfair.
+The question remained.
 
-"I do not know," he said.
+Mara looked at him.
 
-She nodded as if she had expected it and disliked being right.
+"There.
+That face."
 
-"That is the part that worries me."
+"What face?"
 
-He looked away.
+"The one where I hit a beam."
 
-When no one needed anything.
+He sat beside her.
 
-Did such a condition exist? In this life, rarely.
-In any life, perhaps not.
-But need had become the mirror in which he saw himself: repairer, refuser, helper, danger, almost-teacher, not-healer, rope-bringer, son.
-Who was he without a broken object, a hungry child, a storm, a question?
+"I do not know."
 
-Daniel, the old name said.
+"That is a bad answer."
 
-The new name answered daily.
+"It is honest."
 
-Neither solved it.
+"Still bad."
 
-"I am tired," he said.
+He looked into the dark courtyard.
 
-"That is not identity."
+"Daniel, maybe."
 
-"It is persistent."
+She was quiet.
 
-She almost smiled.
+Only she, Maryam, Yosef, and a few others knew the old name.
+It did not belong in public.
+It did not belong to the work.
+It belonged to a man who had died under a beam and somehow woken as Yeshua in a house where his mother knew hunger and his father knew wood.
 
-Then did not.
+Mara said, "Daniel is not what you are when no one needs anything.
+Daniel is where you came from."
 
-"When the question becomes too big, you make it practical.
-That saves you.
-It also hides you."
+He looked at her.
 
-"Yes."
+That hurt because it might be true.
 
-"You need a room where no one asks from need."
+"Then Yeshua?"
 
-"Does that exist?"
+"That is what your mother calls when you forget to eat."
 
-She looked at him.
+"Also true."
 
-"With friends, idiot."
+"Still not answer."
 
-Oh.
+He leaned back against the wall.
 
-He had no defense against that.
+"I miss coffee."
 
-Mara continued walking.
-
-"Sometimes I do not want your answer.
-I want you to complain about fish.
-Or hate bread marks.
-Or be wrong about goats.
-Or remember something useless from before.
-Or say nothing because nothing needs repairing."
-
-Daniel followed.
-
-The road mark came into view, half washed out.
-
-He said, "I miss coffee."
-
-Mara stopped.
+Mara blinked.
 
 "What?"
 
-"Old world drink.
+"Old-world drink.
 Bitter.
 Hot.
-Made people think they were awake when they were only anxious."
-
-She stared.
-
-"That sounds terrible."
-
-"It was important."
-
-"Was it food?"
-
-"No."
-
-"Medicine?"
-
-"Debatable."
-
-"Poison?"
-
-"Also debatable."
-
-"Did it help repair things?"
-
-"Sometimes it helped people begin."
+Makes people think they are awake when they are mostly anxious."
 
 She considered.
 
-"Like morning anger in a cup."
-
-Daniel laughed.
+"Morning anger in a cup."
 
 "Yes."
 
-"Do you miss it?"
+"That is useless."
 
-"Yes."
-
-"Good.
-That is useless enough."
-
-They repaired the mark.
-
-Mara did not ask who he was again.
-
-Not that day.
-
-But the question stayed.
-
-Not as hook.
-
-As hand.
-
----
-
-The market men eventually sent someone else.
-
-Not Amram.
-
-Not Elior.
-
-A woman.
-
-This was either progress or strategy.
-
-Her name was Shifra.
-She was older, finely dressed but not ostentatious, with a veil pinned precisely and eyes that had measured rooms before entering them.
-She brought a broken lamp stand.
-
-Good.
-
-She also brought two men who remained outside after one look from Maryam.
-
-Better.
-
-Shifra placed the lamp stand down.
-
-"I am told one brings work."
-
-"Yes," Maryam said.
-
-"I am also told that doing so does not guarantee an answer."
-
-"Correct."
-
-"I approve."
-
-Daniel immediately distrusted approval.
-
-The lamp stand had a cracked base and an uneven stem.
-It had been ornamental once, useful later, and overloaded recently with a larger lamp than it was made for.
-The base could be repaired, but the lamp it held had to be smaller or the stand widened.
-
-Shifra watched Daniel inspect it.
-
-"You will say the stand teaches the question."
-
-"I might not."
-
-"But it does."
-
-"Unfortunately."
+"Very."
 
 She smiled.
 
-Maryam sat across from her.
+"Good.
+Say more useless things."
 
-"What do you ask?"
+So he did.
 
-Shifra looked at the lamp stand.
+He told her about coffee, elevators, traffic lights, pencils with erasers, cheap chairs, loud machines, glass windows, a device that fit in a pocket and contained more words than Natan could ruin in a lifetime.
+Mara called that last one a cursed tablet.
+Correct.
 
-"My husband is among those asking who you are."
+For a few minutes, no one needed him.
 
-Daniel said nothing.
+That was the point.
 
-"He wants to know whether to oppose you."
+At the end, Mara said, "You need rooms where no one asks from need."
 
-There it was.
+"Hard to find."
 
-Honest.
+"Then build small ones."
 
-Maryam asked, "And you?"
+"With coffee?"
 
-"I want to know whether opposing you would harm people I care for."
+"With morning anger if necessary."
 
-Better question.
+He smiled.
 
-Shifra continued, "I do not ask whether you are prophet, teacher, healer, or threat.
-I have seen enough men named those things to know the names often reveal the namer.
-I ask: what happens when people do not agree with you?"
+She picked up the charcoal again.
 
-Daniel looked at her carefully.
+"Also, if your old name starts becoming holy, I will ruin it."
 
-Good.
+"Thank you."
 
-Very good.
+"I mean badly."
 
-"Depends how."
+"I know."
 
-She nodded.
+They sat until Maryam called, "Yeshua, sleep."
 
-"If they say your marks are foolish?"
+Mara pointed.
 
-"Some are."
+"Name calling home."
 
-Mara, nearby, whispered, "Untrue."
-
-"If they refuse food routes?"
-
-"Then hungry people may suffer, and we ask why they refuse."
-
-"If they say women should not lead these rooms?"
-
-Maryam smiled without warmth.
-
-Daniel said, "Then they are wrong."
-
-Shifra's eyes sharpened.
-
-"If they say the poor are poor because God ordered the world?"
-
-"Then they should not be trusted with full jars."
-
-Mara inhaled quietly.
-
-Too sharp.
-
-Shifra did not flinch.
-
-"If they say Rome will notice?"
-
-"Then they may be right."
-
-Silence.
-
-Good.
-
-Shifra waited.
-
-Daniel continued, "Right about danger does not mean right about stopping.
-It means we ask how to reduce harm without pretending the boot is kindness."
-
-She nodded once.
-
-"If they forbid their households from attending?"
-
-Maryam answered.
-
-"Then we ask who in the household is being kept from what work, food, witness, or safety.
-Not every refusal is oppression.
-Not every permission is freedom."
-
-Shifra looked at Maryam with respect.
-
-Good.
-
-The center moved.
-
-Shifra said, "If my husband asks whether you claim authority?"
-
-Daniel touched the lamp stand.
-
-"This stand can hold a lamp if repaired and if the lamp fits.
-It cannot make light.
-It cannot own the flame.
-It can still cause harm if too narrow for what it carries."
-
-Shifra smiled faintly.
-
-"There it is."
-
-"I hate that."
-
-"I see why people listen."
-
-"Then listen also when I say the stand is not the light."
-
-She nodded.
-
-"I will carry that."
-
-Maryam said, "Carry also that the lamp needs oil from somewhere."
-
-Shifra laughed softly.
+Daniel stood.
 
 "Yes."
 
-Yosef added, "And stable ground."
-
-Shifra looked at him.
-
-"Your household is inconvenient."
-
-Mara said, "We try."
-
-Shifra left with the lamp stand repaired but not widened enough for the large lamp.
-She would need either smaller light or broader base.
-
-She understood.
-
-That was dangerous too.
+He went.
 
 ---
 
-Shifra's report changed the public question.
+Shifra came with the lamp stand the next day.
 
-Not softened.
+She was finely dressed, older than Daniel had first guessed, and carried herself like someone used to being underestimated only by those who made that error once.
+Two men came with her.
+Maryam looked at them.
+They remained outside.
 
-Changed.
-
-Men still asked who Daniel was.
-But now some asked what kind of authority he refused and what kind he exercised anyway.
-This was more precise and therefore more dangerous.
-
-At Natan's reading room, students debated whether distributed authority was authority.
-Natan made them fix the sagging shelf before answering.
 Good.
 
-At the lake, Dalia said authority was whoever people obeyed in storm, and fools discovered it too late.
-Also good.
+Shifra placed the lamp stand on the table.
+One side leaned.
+The socket had narrowed from repeated repairs.
+The base was stable only if turned toward the wall, which defeated the purpose of light.
 
-At bread tables, Hanina said authority was who knew where the onions went and who thought that did not matter.
-True, if overly onion-centered.
+"I am married to one of the men asking who Yeshua is," she said.
 
-Ruth said authority was who could stop a crowd from watching grief and who would still clean the bowl afterward.
+Mara whispered, "Excellent opening."
 
-Asa said authority was who cleared the path before praising his courage.
+Shifra looked at her.
 
-Mara said authority was a goat: if you denied owning it, it still ate your laundry.
+"I thought so."
 
-Daniel hated that one because it was excellent.
+Daniel liked her immediately and distrusted that.
 
-Maryam said authority was weight other people felt when you moved.
+Maryam asked, "What do you ask?"
 
-That silenced everyone.
+Shifra touched the lamp stand.
 
-Daniel wrote it down.
+"Not whether he is prophet, teacher, healer, threat, or promised one.
+Men ask those because answers give them handles.
+I ask what happens when people disagree with him."
 
-Then crossed it out.
+Good.
 
-Then wrote it again.
+The room changed.
 
-Authority is weight other people feel when you move.
+Daniel sat.
 
-No wonder refusal did not remove it.
+Shifra continued, "If someone says your marks are foolish?"
 
-He moved, and people shifted.
-He stayed, and people waited.
-He spoke, and phrases traveled.
-He remained silent, and silence became answer.
-He refused title, and refusal shone.
-He went into water, and people called it sign.
-He sat on a hill, and people remembered him standing.
-He tried to distribute weight, and distribution itself became pattern.
+Mara said, "Some are."
 
-He could not become weightless.
+"If someone refuses bread routes?"
 
-He could only ask who felt the weight, whether they could speak, whether they could leave, whether others could carry, whether the beam was being overloaded.
+Maryam said, "Then hungry people may suffer.
+Ask why they refuse."
 
-This was not comforting.
+"If someone says women should not lead rooms?"
 
-It was useful.
+Hanina, present with onions because of course, said, "Then their rooms are already poorly led."
 
-Barely.
+Maryam smiled.
+
+Shifra looked at Daniel.
+
+"If someone says the poor are poor because God ordered the world?"
+
+Daniel said, "Then they should not be trusted with full jars."
+
+Ruth would like that.
+
+Shifra nodded.
+
+"If someone says Rome will notice?"
+
+Silence.
+
+The lamp flame, though unlit, seemed to lean.
+
+Daniel said, "They may be right."
+
+Mara looked at him.
+
+He continued, "Right about danger does not mean right about stopping.
+It does mean danger must be carried honestly."
+
+Shifra's eyes sharpened.
+
+"If someone forbids their household to attend?"
+
+Maryam answered before Daniel.
+
+"Ask who is kept from work, food, witness, or safety.
+Not every refusal is oppression.
+Not every permission is freedom."
+
+Shifra looked at her for a long moment.
+
+"Good."
+
+Then she turned the lamp stand.
+
+"It can hold a lamp if repaired.
+It cannot make light.
+It cannot own the flame.
+If too narrow, it chokes the lamp.
+If too loose, the lamp falls.
+If placed high enough, more can see.
+If placed badly, it blinds."
+
+Yosef smiled faintly.
+
+"You brought the answer."
+
+"I brought the object."
+
+"Same, sometimes."
+
+They repaired the stand by widening the socket carefully and resetting the lean.
+Daniel did little.
+This was proper.
+Shifra had come to ask about authority, and the room answered before him.
+
+At the end, Shifra said, "The stand is not the light."
+
+Daniel nodded.
+
+Maryam added, "The lamp still needs oil."
+
+Yosef added, "And stable ground."
+
+Mara added, "And someone to notice when men admire the stand because they dislike darkness."
+
+Shifra smiled.
+
+"With your name?"
+
+Mara looked horrified.
+
+"No."
+
+"Then I will remember it anyway."
+
+Dangerous woman.
+
+Useful.
 
 ---
 
-The turning point came at the third hill.
+The public question changed after Shifra.
 
-They had tried not to hold it.
+Not everywhere.
 
-Rooms first.
+Enough.
 
-Hills only when rooms fail.
+It became less "Who is Yeshua?" and more "What kind of authority does he refuse, and what kind does he exercise while refusing?"
 
-The rooms failed because the question had become public enough that private answers multiplied badly.
-The market men wanted clarity.
-The lake wanted protection from claims.
-Bread tables needed warning against ownership.
-Natan's students needed correction.
-The poor needed the work not to be captured by people who liked organized mercy as long as it did not threaten grain.
-Women needed their names not erased.
-Men needed to stop asking Daniel privately to settle what they feared saying publicly.
+This was worse.
 
-So they chose the hill.
+Better questions often were.
 
-Again.
+Natan brought the first version in writing and was made to read it aloud while holding a broken handle so the room did not attack him for abstraction.
 
-Smaller than the first in intention.
+"Some say," he began, "that refusing authority is itself authority."
 
-Larger in attendance.
+Ruth said, "Some say because some cannot shut up."
+
+Natan nodded.
+
+"Yes.
+Still true."
+
+Maryam looked at Daniel.
+
+Daniel looked away.
+
+Authority was weight other people felt when you moved.
+She had said it.
+It had become worse by being true.
+
+Dalia sent from the lake: Authority is who people obey in storm, and fools discover it too late.
+
+Hanina said: Authority is who knows where the onions go and who thinks that does not matter.
+
+Ruth said: Authority is who can stop a crowd from watching grief and still clean the bowl afterward.
+
+Asa, when asked later, said: Authority is who cleared the path before praising courage.
+
+Mara said: Authority is a goat.
+You may deny owning it, but it still eats laundry.
+
+Daniel refused to write that.
+
+Natan did.
 
 Of course.
 
-This time, Daniel did not pretend it was only objects.
+Maryam said, "Authority is weight other people feel when you move."
 
-Objects came first anyway: the cracked lintel, Shifra's lamp stand, Dalia's rope, the net needle, a bread mark, the can-they-leave mark, Asa's old brake wedge, Tobiah's stool shaving in a small cloth, and the blank mistake board.
+Daniel did write that.
 
-People sat.
+Then he crossed it out because it frightened him.
 
-Women near objects.
+Then he wrote it again because fear was not correction.
+
+---
+
+The third hill happened because rooms failed.
+
+Not morally.
+
+Physically.
+
+Too many people came with too many questions that were not all curiosity.
+Some came because Barak-like men sent them.
+Some came because the serious men wanted reports.
+Some came because hunger and rumor had tangled.
+Some came because they had heard Shifra's lamp stand line and wanted to know whether Yeshua was light, stand, oil, or danger.
+Some came because they liked hills.
+
+Mara said hills were becoming a governance failure.
+
+Maryam agreed.
+
+Then chose a low slope anyway because the rooms could not carry the crowd.
+
+"Objects first," Yosef said.
+
+So objects came.
+
+The cracked lintel, now cut to show sound and rotten sections.
+
+Shifra's repaired lamp stand.
+
+Dalia's too-short rope.
+
+The bread mark.
+
+The can-they-leave mark.
+
+Asa's brake wedge.
+
+Tobiah's old stool shaving.
+
+The repaired grain scoop.
+
+A blank mistake board.
+
+No throne.
+
+No platform.
+
+No special seat.
 
 Food first.
 
-Names before wounds.
+Always.
 
-Exits visible.
+Women near the objects.
+Children not in front as decoration but where they could leave.
+Men with questions told to hold them until the object was named.
+People who had come only to watch were given water tasks or sent away by Ruth, who had developed professional excellence in spectator removal.
 
-No spectators.
+Daniel sat on the ground.
 
-Ruth standing.
-
-Mara with marks.
-
-Yosef with tools.
-
-Maryam rested beforehand and sat where everyone could see she was not endlessly available.
+People were disappointed.
 
 Good.
 
-Daniel began by not beginning.
+Maryam began.
 
-He let others speak what each object taught.
+Not Daniel.
 
-Erel spoke the lintel: "What held before may not carry new load."
+She held up the lintel section.
 
-Good.
+"What held before may not carry new load."
 
-Tirzah spoke the bread mark: "If bread moves, ask whose hands and whose hunger remain."
+Erel, red with terror but standing, explained the crack.
+He spoke too fast.
+Yosef slowed him.
+He finished.
+People listened.
 
-Good.
+Tirzah spoke over the scoop.
 
-Dalia, present in person this time, spoke the rope: "Storms need rope, not audience.
-Also, Daniel sinks."
+"If bread moves, ask whose hands and whose hunger remain."
 
-Great laughter.
+Dalia was absent, but her rope message was read by the lake boy, who delivered "no need owns a person entirely" with excessive pride and forgot the fish, which Mara considered an improvement.
 
-Good.
+Asa spoke from his board about the brake wedge.
 
-Asa spoke the brake wedge: "Ask the person moving whether the path fits."
+"Do not praise a path before asking the person moving whether it fits."
 
 Hanina spoke hunger.
 
 Ruth spoke spectators.
 
-Natan spoke conditions before sayings.
+Natan spoke conditions before sayings, and the crowd suffered usefully.
 
-Maryam spoke rooms.
+Shifra held the lamp stand.
 
-Yosef spoke load.
+"The stand is not the light."
 
-Mara spoke turning around.
+Maryam added oil.
 
-Daniel listened.
+Yosef added ground.
 
-This was the best beginning they had ever had.
+Mara added, from the mistake board, "If you came for him, you missed the object."
 
-Then Shifra stood.
+That one landed.
 
-"My husband asks: if many teach, why do many gather here?"
+Too hard.
+
+Daniel felt the crowd turn toward him precisely because she told them not to.
+
+Refusal shines.
+
+Yes.
+
+Shifra saw it too.
+
+She looked at Daniel.
+
+"If many teach, why do many gather here?"
 
 Good.
 
-The hill became still.
+Cruel.
 
-There was no avoiding it now.
+Necessary.
 
-Daniel stood slowly.
+Daniel stood.
 
 Then sat again.
 
-Mara smiled.
+Better.
 
-Good.
-
-He spoke seated.
+He spoke from the ground.
 
 "Because I am part of what drew you."
 
-No evasion.
+No one moved.
 
-Maryam nodded once.
+"I do not control that by denying it.
+I do not make it safe by liking it.
+I do not make it false by fearing it."
 
-"I do not control all of it.
-I did not create all of it.
-I cannot deny all of it honestly."
+Maryam watched him.
 
-The crowd watched.
+Mara's face was sharp and pale.
 
-He continued, "Some came because of bread.
-Some because of healing that was not healing.
-Some because of water.
-Some because of questions.
-Some because others came.
-Some to stop it.
-Some to use it.
-Some because they are hungry, or afraid, or curious, or angry, or tired of being told their suffering is proof against them."
+Daniel continued, "Some of you came because you need bread.
+Some because you heard there was healing.
+Some because a child was fed.
+Some because a boat came back.
+Some because questions became possible in rooms where they had not been possible.
+Some because men with power want reports.
+Some because you want to stop this.
+Some because you want to use it.
+Some because you are tired of suffering being used against you."
 
-People were listening too hard.
+The hill was silent.
 
-Danger.
+"If you make me the beam over every doorway, I will fail you.
+If you make my name the answer before asking what is broken, you will stop seeing.
+If you use Yeshua to avoid Maryam, Yosef, Mara, Dalia, Hanina, Ruth, Tirzah, Asa, Erel, Shifra, Naama, the hungry, the sick, the grieving, the indebted, and those not here because your questions cost too much, you have already misused the name."
 
-He reached for the lintel and placed his hand on it.
+Mara whispered, "Long list.
+Good."
 
-"But if you make me the beam over this whole doorway, it will fail.
-I will fail.
-I am not built for that.
-No one is."
+A few heard and laughed.
 
-Yosef's eyes shone.
+Good.
 
-Daniel looked at the crowd.
+Daniel said, "Ask why you need the answer.
+If the answer lets you stop seeing work, throw it away.
+If the answer lets you own someone, throw it away.
+If the answer lets you avoid being corrected, throw it away.
+If the answer helps you bring bread, witness, truth, rest, rope, a way to leave, someone else to carry, keep it lightly."
 
-"If you ask who I am, ask also why you need the answer.
-If the answer lets you stop seeing the work near you, throw it away.
-If the answer lets you own me, throw it away.
-If the answer lets you avoid asking Maryam, Dalia, Hanina, Ruth, Tirzah, Asa, Yosef, Mara, Erel, Natan, Yair, Tobiah's house, the hungry child, the widow, the person harmed by your debt, then throw it away."
+Malki, from the lintel group, asked, "And what answer do you keep?"
 
-He breathed.
+There it was.
 
-"If the answer helps you bring work, food, witness, truth, rest, rope, a knife for the net, a way to leave, and someone else to carry what you cannot, then maybe keep it lightly."
+Not malicious.
 
-Natan was crying.
-
-This alarmed Daniel.
-
-Amram stood at the back.
-
-"So what answer do you keep?"
+Honest.
 
 Daniel looked at Maryam.
 
@@ -1790,237 +1513,192 @@ Then Mara.
 
 Then the objects.
 
-He could say son.
+"I am someone trying not to let fear decide alone."
 
-He could say the new name.
+He had said it before.
+It still held.
 
-He said, "I am someone trying not to let fear decide alone."
+"I am someone helped by many hands."
 
-The hill was silent.
+Also true.
 
-Too small?
+"I am someone who knows some things and not others."
 
-Too large?
+Necessary.
 
-True.
+"I am someone who may be refused."
 
-He continued, "I am someone who has been helped by many hands.
-I am someone who knows some things and not others.
-I am someone who came back.
-I am someone who will leave sometimes.
-I am someone you may refuse.
-I am someone who must be corrected."
+Maryam breathed.
+
+"I am someone who must be corrected."
 
 Mara whispered, "Very must."
 
-The crowd laughed.
-
-Thank God.
-
-Daniel smiled.
-
-"And I am Yosef and Maryam's son."
-
-Maryam looked down.
-
-Yosef closed his eyes.
-
-That answer traveled.
-
-Not enough.
-
-Enough.
-
-For a moment.
-
----
-
-After the third hill, the question softened locally.
-
-Not disappeared.
-
-Softened.
-
-People began answering in multiples.
-
-Who is he?
-
-Yosef's son.
-
-Daniel.
-
-The one who went under.
-
-The one who says bring work.
-
-The one Mara corrects.
-
-The one Maryam watches.
-
-The one who is not a beam.
-
-The one with poor water balance.
-
-A teacher? Maybe, but not alone.
-
-A prophet? Ask what you want that word to carry.
-
-A healer? No.
-But rooms change.
-
-A danger? Yes, if people stop thinking.
-
-A help? Sometimes.
-
-A title did not settle.
+Some laughed.
 
 Good.
 
-Outside, titles grew anyway.
+"I am Yeshua, Maryam and Yosef's son."
 
-Teacher.
+The ordinary name went out into the crowd.
 
-Healer.
+No thunder.
 
-Prophet.
+No sky.
 
-Madman.
+Just a name and parents attached to it.
 
-Fraud.
+Good.
 
-Danger.
+"And I am not the work."
 
-Holy man.
+Silence.
 
-Carpenter's son.
+Then Erel, quietly but clearly, said, "He is not the work."
 
-Maryam's boy.
+The phrase moved.
 
-Yosef's apprentice.
+Not cleanly.
 
-The one from the hills.
-
-The one at the lake.
-
-The one who feeds.
-
-The one who refuses.
-
-The one who will not say.
-
-The one who must be made to say.
-
-That last version would matter later.
-
-Daniel knew.
-
-The old story knew.
-
-The road ahead darkened by a degree.
-
-But for now, the household had a little more structure.
-
-Not safety.
-
-Structure.
-
-Erel began saying, when asked, "He is not the work."
-
-Mara improved it: "If you came for him, you missed the object."
-
-Hanina said, "If you came hungry, eat before arguing."
-
-Dalia sent: "If you ask who he is during storm, you are not holding rope."
-
-Ruth said: "If you need a title to do mercy, you are lazy."
-
-Natan wrote all of these with conditions.
-
-Maryam said little.
-
-That worried Daniel.
-
-He found her one evening near the chests, lids open, dusting the objects.
-
-She held the shard from the cracked jar.
-
-"Are you all right?" he asked.
-
-"No."
-
-He sat.
-
-She smiled faintly.
-
-"Good question though."
-
-He waited.
-
-She turned the shard in her hand.
-
-"They ask who you are."
-
-"Yes."
-
-"They do not ask who you are to me."
-
-His throat tightened.
-
-"No."
-
-"If they did, I would say son."
-
-"I know."
-
-"And if the story says more, it does not make son less."
-
-He could not speak.
-
-Maryam placed the shard back.
-
-"I need you to remember that before others forget."
-
-"I will try."
-
-"Try with structure."
-
-He laughed softly.
-
-"What structure?"
-
-She looked toward the doorway where Yosef worked, where Mara's voice argued with Erel about unauthorized marks, where Hanina shouted about onions, where life refused solemnity.
-
-"Come home."
-
-The simplest and hardest structure.
-
-Come home.
-
-Return.
-
-Again and again.
-
-He nodded.
-
-"Yes."
-
-Maryam touched his cheek.
-
-"Both names," she said.
-
-"Both," he answered.
-
-Not yet.
+Nothing useful did.
 
 ---
 
-That night, Daniel wrote the list.
+After the hill, the public question did not end.
+
+It changed clothing.
+
+Some said Yeshua had finally answered.
+
+Some said he denied everything.
+
+Some said he accepted being teacher but not work.
+
+Some said he listed too many women to be serious.
+
+Some said the women were the danger.
+
+Some said he was humble.
+
+Some said he was evasive.
+
+Some said he was Mary's son in a way that sounded like insult.
+
+Some said he was Mary's son in a way that sounded like protection.
+
+Some said "not the work" and meant it.
+
+Some said "not the work" while making him exactly that.
+
+Erel carried the phrase badly at first, then better.
+
+Mara improved it:
+
+"If you came for him, you missed the object."
+
+Hanina added:
+
+"If you came hungry, eat before arguing."
+
+Dalia, when told, sent:
+
+"If you ask who he is during storm, you are not holding rope."
+
+Ruth said:
+
+"If you need a title to do mercy, you are lazy."
+
+Natan wrote that down and wisely labeled it Ruth.
+
+Maryam said nothing public.
+
+That mattered more.
+
+That evening, after the hill had emptied and the objects were packed away, Maryam found Daniel by the chests.
+
+Not the chest of things not to worship, though it had gained too many candidates.
+The ordinary storage chest, where cloth, tools, and inconvenient memory coexisted.
+
+She held the lintel shaving.
+
+"People ask who you are," she said.
+
+"Yes."
+
+"They rarely ask who you are to me."
+
+He looked at her.
+
+Her face was tired beyond age.
+
+"Son," she said.
+
+One word.
+
+Enough to unmake all titles.
+
+Daniel closed his eyes.
+
+"Yes."
+
+"If the story says more, it does not make son less."
+
+He swallowed.
+
+"No."
+
+"If people use your name, remember who called it before they needed it."
+
+He could not speak.
+
+Maryam touched his cheek.
+
+"Come home."
+
+There it was again.
+
+Rope, not net.
+
+Love, not command.
+
+"Yes," he said.
+
+"Both names," she said softly.
+
+Daniel looked at her.
+
+"Both."
+
+She did not say the old one.
+
+She did not need to.
+
+---
+
+That night, Daniel wrote the "Who" list.
+
+Not because lists saved him.
+
+Because unlisted fears bred in corners.
 
 Who:
 
 Ask why the answer is needed.
 
 Do not let a name replace work.
+
+A name can call someone home.
+It can also summon a crowd.
+
+Ask which is happening.
+
+Yeshua is ordinary here.
+That matters.
+
+Jesus is future memory.
+That also matters.
+
+Do not confuse them and do not separate them falsely.
 
 Do not let refusal shine too brightly.
 
@@ -2038,134 +1716,190 @@ If you came for him, you missed the object.
 
 If you need a title to do mercy, you are lazy.
 
+Not official, but Ruth.
+
 I am not the beam.
+
+I am not the work.
 
 I am someone trying not to let fear decide alone.
 
-I am someone who came back.
+I am someone helped by many hands.
 
 I am someone who may be refused.
 
 I am someone who must be corrected.
 
+Yeshua, Maryam and Yosef's son.
+
 Son.
 
 Come home.
 
-He stared at the last two.
+He stared at the two names in the middle of the list.
 
-They were not teachings.
+Yeshua.
 
-They were anchors.
+Jesus.
 
-He placed the list in the second chest.
+The first had been in the house for years.
 
-Then thought better and took it out.
+The second still waited like a wound not yet opened fully.
 
-Some lists belonged in chests.
+The chapter of the name had not happened yet, not in him.
+But the problem had become visible: the local name was ordinary and loved; the future name was vast and misused.
+They were the same person and not the same use.
 
-This one belonged under his sleeping mat.
+Mara read over his shoulder.
 
-Not hidden.
-
-Near.
-
-Mara saw.
-
-"Secret?"
-
-"No."
-
-"Private?"
+"That list has too many traps."
 
 "Yes."
 
 "Good."
 
-She sat near the threshold.
+She pointed.
 
-After a while, she said, "Who am I?"
+"Yeshua is ordinary here.
+That matters."
 
-He looked up.
+"Yes."
 
-She was not joking.
+"Do not let them make ordinary things too holy to wash."
 
-Or not only.
+"I won't."
 
-He considered.
+"You will.
+Then I will correct you."
+
+"Good."
+
+She tapped another line.
+
+"Jesus is future memory."
+
+"Yes."
+
+"Ugly name?"
+
+"Not ugly.
+Heavy."
+
+"Heavy things need many carriers."
+
+He looked at her.
+
+She shrugged.
+
+"I listen sometimes."
+
+"Rarely."
+
+"Enough."
+
+She sat beside him.
+
+"Who am I?"
+
+The question surprised him.
 
 "Mara."
 
-She rolled her eyes.
-
-"Brilliant."
+"Lazy."
 
 "Quick hands."
 
-"Old."
+"Partial."
 
 "Quick insults."
 
-"Obvious."
+"Obviously."
 
 "Friend."
 
 She looked away.
 
-There.
+The word stayed.
 
-He continued, "Witness."
+"Anything else?"
+
+He thought.
+
+"Witness."
+
+Her head snapped back.
 
 "No."
 
-The refusal was immediate.
+He waited.
 
-Interesting.
+"Witnesses stand around while other people become important," she said.
 
-"No?"
+"Some do."
 
-"Witnesses stand around while other people become important."
+"I do not stand around."
 
-"Not all."
+"No."
 
-"Enough."
+"I do not want to be the person later stories put at the edge saying, yes, he was like this."
 
-He nodded.
+"Then what?"
 
-"What then?"
-
-She took a long time.
+She looked toward the dark doorway.
 
 "Someone who can leave."
 
-Yes.
+Daniel nodded.
 
-Good.
+"Yes."
 
-"Someone who comes back?" he asked.
-
-She looked at him.
+"And comes back?" he asked.
 
 "Sometimes."
 
-"Enough."
+Good.
 
-She smiled faintly.
+Honest.
 
-"For now."
+She took the charcoal and wrote under his list:
 
-They sat in comfortable almost-silence until a goat made a noise outside, and Mara went to investigate because identity did not excuse negligence.
+Mara: someone who can leave.
 
-Daniel lay down.
+Then, after a moment:
 
-Under the mat, the list waited.
+Sometimes comes back.
 
-Above him, the beam held.
+Daniel smiled.
 
-Around him, the house breathed.
+She pointed the charcoal at him.
 
-Outside, people asked who he was.
+"If anyone turns that into loyalty poetry, I will burn the paper badly."
 
-Inside, someone came home.
+"Noted."
+
+Outside, a goat knocked something over.
+
+Mara closed her eyes.
+
+"Identity does not excuse negligence."
+
+"That was my line."
+
+"And now it is useful."
+
+They went to rescue whatever the goat had chosen to ruin.
+
+The question of who he was remained.
+
+Of course.
+
+But inside the house, someone had called his name to bring him to food.
+Someone had called him son.
+Someone had called him friend.
+Someone had refused witness and chosen leaving.
+
+Outside, people asked who Yeshua was.
+
+Inside, Yeshua came home.
 
 For now, that had to be enough.
