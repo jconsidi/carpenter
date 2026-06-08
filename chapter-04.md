@@ -1,1092 +1,709 @@
 # Chapter 4 — The Child Who Watched Roofs
 
-Daniel’s first complete sentence in his new life was not profound.
+Yeshua watched roofs because roofs told the truth badly.
 
-It was not a prayer, though Maryam would later tell the story in a way that made it sound gentler.
-It was not a blessing, though an old woman who had been present claimed, years afterward, that she had heard something like wisdom in it.
-It was not even a question, though Yosef insisted that everything Daniel said at that age sounded like an accusation disguised as one.
+Walls could be flattered.
+Floors could be swept.
+Doors could be rehung just enough to hide a sag.
+Jars could be turned so the crack faced shadow.
+People lied with plaster, cloth, paint, stories, and posture.
 
-His first complete sentence was:
+Roofs lied only until rain.
 
-“The roof is tired.”
+Then they confessed everywhere at once.
 
-He said it on a clear morning while sitting in the courtyard with a crust of bread in one hand and a wooden peg in the other.
+Daniel respected this.
 
-The adults stopped talking.
+He was six when he first understood that the house had different voices depending on weather.
+Dry days made everyone optimistic.
+Rain made the building honest.
+A drip near the storage shelf.
+A darker patch under the corner beam.
+A smell near the rear wall where damp had entered more than once.
+Wind worrying at edges.
+Sun baking one side until reed and clay shrank at different rates.
 
-Daniel looked up.
+Yosef saw most of it.
 
-The roof above the storage lean-to sagged between two supports.
-Not much.
-Not enough to alarm anyone who had lived under roofs long enough to accept that roofs, like people, were allowed some resignation.
-The covering had held through the last rain.
-The shade still fell where shade was expected.
-Nothing creaked at that moment.
+Maryam saw what the leaks did to people.
 
-But the line was wrong.
+Yeshua saw both badly and intensely.
 
-Daniel had been watching it for days.
+“Do not stare at the roof during meals,” Maryam said.
 
-The middle had dropped almost imperceptibly.
-One support post had sunk where water collected after washing.
-The lashings near the upper joint had darkened.
-The matting above had a slight belly to it.
-Not collapse.
-Not yet.
-Only fatigue, distributed in quiet increments across material that had been asked to endure one more season than it wanted.
+“It moves.”
 
-“The roof is tired,” Daniel repeated.
+“It has moved for years.”
 
-Yosef followed his gaze.
+“That is not defense.”
 
-Maryam followed Yosef’s.
-
-The old woman, seated by the wall with a bowl in her lap, made a soft sound through her nose.
-
-“Roofs do not tire,” she said.
-
-Yosef did not answer.
-
-That was how Daniel knew the sentence had worked.
-
-Yosef stood, crossed the courtyard, and placed one hand against the low post.
-He pushed.
-The post shifted almost nothing.
-
-Almost.
-
-He crouched and scraped dirt away from the base.
-Damp earth came loose under his fingers.
-
-Maryam put down the cloth she had been mending.
-
-“How bad?” she asked.
-
-Yosef looked up, first at the sag, then at Daniel.
-
-“Not bad,” he said.
-
-Daniel opened his mouth.
-
-Yosef raised one hand.
-
-“Not yet.”
-
-This was acceptable.
-
-Not yet was better than fine.
-Not yet admitted a future.
-Fine denied causality.
-
-Maryam looked at Daniel.
-
-“The roof is tired,” she said.
-
-Daniel nodded.
-
-She considered him for a long moment.
-
-Then she turned to Yosef.
-
-“Then let it rest before it falls.”
-
-Daniel approved of this sentence so strongly that he held up the crust of bread as if making a formal motion.
-
-The old woman laughed.
-
-“Now he commands roofs.”
-
-Daniel considered correcting her.
-He had not commanded the roof.
-He had diagnosed the roof.
-These were different professions.
-
-He lacked the vocabulary to make this distinction, so he bit the bread with dignity.
-
-Yosef repaired the lean-to that afternoon.
-
-He did not replace everything.
-Daniel had known he would not.
-Nothing in this world was replaced merely because a better version could be imagined.
-Yosef lifted, propped, dried the post base, reset the support on flatter stone, retied the upper joint, and adjusted the matting so water would not collect in the belly.
-It was not elegant.
-
-It was better.
-
-Daniel watched from where Maryam had placed him, too far away to help and too close to avoid seeing every compromise.
-
-At one point Yosef used a wedge.
-
-Daniel made a noise.
-
-Yosef glanced over his shoulder.
-
-“Temporary,” he said before Daniel could.
-
-Daniel narrowed his eyes.
-
-Yosef smiled without smiling and continued working.
-
-By evening, the roof no longer looked tired.
-
-It looked cautious.
-
-Daniel understood that feeling.
-
----
-
-Words made life more dangerous.
-
-Before words, people could dismiss Daniel’s attention as temperament.
-He stared.
-He cried.
-He pointed.
-He became angry at jars, stools, lamps, thresholds, ropes, goats, and weather.
-This was inconvenient but safely childish.
-
-Words changed the category.
-
-Words allowed other people to hear intention.
-
-Daniel did not like how much of his mind leaked out through them.
-
-At first, language had felt like a broken tool.
-He would reach for a word and find only sound.
-He would understand an adult sentence in flashes, then fail to answer before the moment closed.
-The language around him came through his new childhood like water through cloth: enough to wet everything, not enough to drink from cleanly.
-
-Then, without warning, the cloth thinned.
-
-A week would pass and words that had been only noise would become obvious.
-Another week, and he could form them.
-Another, and grammar, that old tyrant, would arrange itself in his mouth when he was too tired to resist.
-
-This frightened him.
-
-It meant the new body was not merely a prison.
-It was growing around him.
-
-Sometimes he caught himself thinking in the new language before remembering to translate.
-
-Sometimes he dreamed without English.
-
-Once, half-asleep against Maryam, he heard Linda’s voice from the old world call his name.
-He turned toward it in the dream, but the name she used was not Daniel.
-
-He woke crying.
-
-Maryam held him until he stopped.
-
-She did not ask.
-
-That was one of the terrible mercies of being small.
-Adults assumed children cried because childhood was full of immediate disasters: hunger, teeth, darkness, fever, a lost scrap of cloth.
-They did not know about other deaths.
-
-Or perhaps Maryam did.
-
-Not the facts.
-Not the beam, the rain, the fall.
-But sometimes she looked at him with an expression that suggested she knew grief could enter a body before the body had earned it.
-
-Daniel avoided that expression by inspecting things.
-
-There was always something to inspect.
-
-A house, he learned, was not one object.
-It was a treaty among materials.
-
-The walls wanted to stand.
-The roof wanted to sink.
-Smoke wanted to stay unless persuaded upward.
-Water wanted to find the lowest insult.
-Animals wanted whatever space had not been defended.
-People wanted warmth, shade, privacy, storage, and not to think about the fact that every one of those desires damaged the others.
-
-A house was not built once.
-
-It was negotiated daily.
-
-Maryam negotiated more than anyone.
-
-She patched.
-Moved.
-Dried.
-Folded.
-Covered.
-Opened.
-Closed.
-Shifted sleeping places according to weather.
-Kept food away from animals and animals away from what they considered food.
-Watched smoke.
-Watched visitors.
-Watched Daniel.
-
-Especially Daniel.
-
-He tried to be less watchable.
-
-This failed because he was bad at acting like a child.
-
-He could imitate childishness in fragments.
-He played with scraps.
-He laughed when tickled, though this was mostly a spinal betrayal.
-He chased a ball once until he remembered that chasing a ball was not beneath him if the ball rolled near a drainage problem.
-He put objects in his mouth less often than other children, which everyone seemed to consider suspicious until a feverish week of teething corrected the statistical record.
-
-But then he would ruin everything by saying things like, “The wall drinks there,” while pointing to a damp patch.
-
-Or, “Do not stand under that.”
-
-Or, “The ladder lies.”
-
-That one caused trouble.
-
-The ladder did lie.
-
-It belonged to a neighbor and had been assembled, repaired, reassembled, cursed at, and repaired again by several generations of men with more confidence than material.
-One rung had been replaced with a branch that looked strong from the front and treacherous from the side.
-The side rail had a split near a peg.
-The whole object leaned with the false humility of a thing waiting to become an incident.
-
-Daniel was sitting near Maryam while she sorted lentils when a young man came to borrow it.
-
-Yosef was not there.
-
-The young man lifted the ladder, testing its weight rather than its truth.
-
-“The ladder lies,” Daniel said.
-
-The young man looked down at him.
-
-“What?”
-
-Daniel pointed.
-
-“Lies.”
-
-Maryam closed her eyes briefly, as if asking for strength from whatever source supplied mothers with the ability not to shout.
-
-The young man laughed.
-
-“It lies?”
-
-“Yes,” Daniel said.
-
-This answer pleased the young man too much.
-
-“What does it say?”
-
-Daniel looked at the ladder.
-
-“It says it holds.”
-
-Maryam’s hand stopped over the lentils.
-
-The young man stopped laughing.
-
-Daniel, who had not intended to sound ominous, tried to repair the mood.
-
-“It does not.”
-
-This did not help.
-
-The young man set the ladder down more carefully than he had lifted it.
-
-Maryam rose and crossed the courtyard.
-She examined the ladder badly at first, because she was not Yosef, then more carefully, because she was Maryam and learned while looking.
-
-She touched the replaced rung.
-
-The branch shifted in its seating.
-
-The young man swore.
+Yosef covered his mouth with one hand.
 
 Maryam looked at him.
 
-He lowered his eyes.
+He lowered the hand.
 
-“Leave it,” she said.
-“Yosef will mend it.”
+“Yeshua,” she said.
 
-“It belongs to my uncle.”
+The name carried warning.
+Eat.
+Stop predicting collapse over lentils.
+Let supper remain supper.
 
-“Then your uncle may thank him.”
+He ate.
 
-The young man left without the ladder and with the expression of someone annoyed to have been spared injury in public.
+He watched the roof anyway, but with more subtlety.
 
-Maryam returned to the lentils.
+Mara, who had by then acquired a name and made herself unavoidable, noticed.
 
-Daniel waited.
+“You think roofs are listening?”
 
-She did not speak.
+“No.”
 
-This was worse than speaking.
+“Then why look like that?”
 
-At last he said, “It was bad.”
-
-“Yes.”
-
-“The ladder.”
-
-“Yes.”
-
-“It lies.”
-
-Maryam sorted one dark stone from the lentils and set it aside.
-
-“You must be careful with words.”
-
-Daniel frowned.
-
-“I was careful.”
-
-“No,” she said.
-“You were accurate.”
-
-He considered this.
-
-Maryam looked at him then.
-
-“Accuracy is not the same thing.”
-
-Daniel hated when she did that.
-
-It was like being handed a tool he could not yet lift.
-
----
-
-Other children found him strange.
-
-This was fair.
-
-Daniel found them strange too.
-
-They operated with a relationship to risk that suggested either ignorance of mortality or deep theological commitment.
-They climbed unstable walls, chased goats, threw stones near faces, stuck fingers into cracks, balanced on jars, crawled under carts, and treated every sharp edge as a conversational partner.
-
-Daniel tried to stop them.
-
-This made him unpopular.
-
-“You are not my father,” one boy said after Daniel told him not to climb a half-stacked pile of stones.
-
-Daniel had no answer.
-The boy was correct.
-Daniel was not his father.
-Daniel was also, in every meaningful sense, old enough to be an unpleasant site supervisor.
-This was difficult to explain while being shorter than the wall in question.
-
-“Fall,” Daniel said.
-
-The boy climbed higher.
-
-Daniel pointed at the stones near the base.
-
-“Loose.”
-
-The boy kicked one experimentally.
-
-The stack shifted.
-
-The boy froze.
-
-Daniel folded his arms.
-
-This gesture had taken practice.
-
-The boy climbed down with exaggerated indifference, then shoved Daniel in the shoulder.
-
-Daniel fell immediately.
-
-The indignity of being correct from the ground was considerable.
-
-Another child, a girl with quick hands and sharper eyes, watched the whole exchange from beside a jar.
-
-“You talk like old men,” she said.
-
-Daniel sat up.
-
-“You climb like dead men.”
+“Water goes where it can.”
 
 She considered this.
 
-Then she laughed.
+“So do goats.”
 
-After that, she followed him sometimes.
+“Goats choose badly.”
 
-Her name was short, but Daniel avoided keeping it too firmly in the narration of his own mind.
-Names in this life attached too easily.
-Still, she became part of the moving edge of his days: a blur of dark hair, bare feet, stolen figs, questions that arrived without warning.
+“So does water, sometimes.”
 
-“Why do you look at roofs?” she asked.
+“Water follows slope.”
 
-“They fall.”
+“Goats follow opportunity.”
 
-“Everything falls.”
+“Not the same.”
 
-“Roofs fall on people.”
+“Both ruin things if adults are careless.”
 
-“So do people.”
+He did not have a reply ready.
 
-He had no answer to that.
+Mara smiled with the terrible pleasure of a child who had won by disorder.
 
-She leaned beside him against a wall and looked up at the roof he was watching.
+She had quick hands, quicker eyes, and no respect for Daniel’s inner age.
+This was useful because everyone else sometimes mistook his intensity for wisdom.
+Mara mistook it for a challenge.
 
-“I do not see it.”
+She called him Yeshua when she wanted his attention and “old face” when she wanted to annoy him.
+She did not know why “old face” struck so close.
+Perhaps children knew without knowing.
+Perhaps his expression really was ridiculous.
 
-“You are looking at the middle.”
+One afternoon, she found him standing behind Yosef’s workshop, looking at a neighbor’s lean-to.
 
-“Where should I look?”
-
-“The ends.”
-
-She looked.
+“What now?”
 
 He pointed.
 
-“Where it rests.
-Where water goes.
-Where someone cut too much.”
+“That roof is wrong.”
 
-She squinted.
+Mara looked.
 
 “It is ugly.”
 
+“Not ugly.
+Wrong.”
+
+“Ugly and wrong can be friends.”
+
+The lean-to had been added against an older wall.
+Someone had set the slope toward the house instead of away from it, or perhaps the ground had shifted and the runoff path had changed.
+Water had been collecting where roof met wall.
+The plaster there showed a faint stain.
+Not urgent yet.
+Future urgent.
+The worst kind.
+
+Yeshua lacked the adult authority to inspect another man’s roof.
+He also lacked the childlike willingness to ignore future rot.
+
+Mara climbed the wall.
+
+“What are you doing?” he hissed.
+
+“Looking.”
+
+“You’ll fall.”
+
+“Then say you predicted it.”
+
+“This is not funny.”
+
+“Everything is partly funny.”
+
+She reached the top of a low stone ledge, leaned, and looked toward the bad join.
+
+“Wet mark,” she said.
+
 “Yes.”
 
-“Will it fall?”
+“So tell Yosef.”
+
+“It is not ours.”
+
+“So?”
+
+“People dislike being told their roof is wrong.”
+
+Mara looked down at him.
+
+“People dislike falling more.”
+
+Not always, Daniel thought.
+Some people preferred a future fall to present correction.
+
+He did not say that because it sounded like something Natan would later write.
+
+Mara climbed down, scraped her elbow, denied injury, and walked directly to Yosef.
+
+“Yeshua says the neighbor’s ugly roof is wrong.”
+
+Daniel closed his eyes.
+
+There were better ways to introduce concern.
+
+---
+
+The neighbor did dislike being told.
+
+His name was Abner.
+He had built the lean-to himself, which meant any criticism of it was also criticism of his adulthood, ancestors, masculinity, and relationship to weather.
+He stood with arms crossed while Yosef asked to look.
+
+“It has held.”
+
+Yosef glanced at Yeshua.
+
+Daniel kept his mouth shut.
+
+This took effort.
+
+Yosef said, “Maybe.
+May I see?”
+
+Abner looked at Maryam, who had come because social repair was already needed.
+
+Maryam said, “If nothing is wrong, we will have learned that your work held well.”
+
+Good.
+
+She made inspection sound like praise with evidence pending.
+
+Abner permitted it.
+
+Yosef looked.
+Daniel stood behind him, vibrating with unsaid information.
+Mara stood beside Daniel, openly enjoying trouble.
+
+Yosef touched the stained wall.
+
+“Water comes here.”
+
+“Only heavy rain,” Abner said.
+
+Only was one of the most dangerous words in repair.
+
+Yosef said, “Slope brings it.”
+
+Abner frowned.
+
+“It runs off.”
+
+“Some.
+Some returns.”
+
+Daniel could not help himself.
+
+“Wall drinks.”
+
+Everyone looked at him.
+
+Mara whispered, “Nice.”
+
+Abner did not find it nice.
+
+Maryam said, “He means the wall holds the water.”
+
+“I know what he means,” Abner said.
+
+Yosef crouched and drew with a stick in the dirt.
+Roof, wall, rain, slope.
+He did not say stupid.
+He did not say wrong.
+He showed water.
+
+Abner resisted the diagram for a while because diagrams from other men are insults with lines.
+Then clouds moved over the sun, a small gust pushed dust along the ground, and everyone remembered rain existed whether pride approved or not.
+
+“What would you do?” Abner asked grudgingly.
+
+“Change edge.
+Small channel.
+Move water away.”
+
+“Cost?”
+
+Yosef named labor, materials, trade possibilities.
+
+Abner grimaced.
+
+Maryam spoke before Daniel could.
+
+“Less than repairing the wall.”
+
+Good.
+
+The work was done over two days.
+Not a full rebuild.
+A practical correction.
+Water would still test it.
+Water tested everything.
+
+When rain came a week later, the wall stayed drier.
+
+Abner did not thank Yeshua.
+
+This was wise.
+
+He sent figs.
+
+Better.
+
+Mara took one.
+
+“Roof figs.”
+
+Daniel accepted one too.
+
+Accuracy tasted better when socially translated.
+
+---
+
+The roof incident made Yeshua more visible.
+
+This was not good.
+
+People began bringing him small predictions disguised as objects.
+
+A basket.
+
+A stool.
+
+A cracked jar.
+
+A hinge.
+
+A goat tether.
+
+“Ask the boy,” someone said once.
+
+Maryam’s face changed.
 
 “No.”
 
-“Then why look?”
+The word landed hard enough to stop the room.
 
-Daniel opened his mouth, then closed it.
+The woman holding the basket blinked.
 
-Because not yet was not never.
+Maryam took the basket.
 
-Because everything was a future failure unless maintained.
+“Ask Yosef.
+Ask me.
+Ask the person who uses it.
+Yeshua may look, but he is not for asking as if he were a charm.”
 
-Because once a beam moved, you might have only one second to act.
+The woman flushed.
 
-Because if you saw early enough, maybe nobody had to be under it.
+“I did not mean—”
 
-He could not say this.
-Not to her.
-Not in words she would hear as anything except more old-man talk.
+“I know.”
 
-So he said, “To know.”
+Maryam’s voice softened without retreating.
 
-The girl shrugged.
+“Still no.”
 
-“Knowing is boring.”
+Daniel felt something in his chest loosen.
 
-Then she ran after the other children.
+Mara, later, said, “Your mother put a wall around you.”
 
-Daniel stayed under the wall and watched the ends of the roof.
+“Yes.”
 
-Knowing was not boring.
+“Good wall.”
 
-Knowing was lonely.
+“Yes.”
 
----
-
-Yosef began taking him along on small jobs.
-
-This was not because Daniel was useful.
-
-Yosef made that clear.
-
-“You are not useful,” he said one morning, tying a bundle of tools.
-
-Daniel, who had been standing by the doorway with the determined stillness of someone hoping to be mistaken for necessary equipment, said, “I can carry pegs.”
-
-“You drop pegs.”
-
-“I can find pegs.”
-
-“After you drop them.”
-
-“I can watch.”
-
-Yosef paused.
-
-That was the argument that worked.
-
-Maryam, kneading dough nearby, did not look up.
-
-“If he goes,” she said, “he comes back with all his fingers.”
-
-Yosef looked at Daniel’s hands, perhaps remembering the split board.
-
-“All fingers,” he agreed.
-
-“And no blood.”
-
-“That is in God’s hands.”
-
-Maryam looked up.
-
-Yosef amended, “No blood.”
-
-Daniel was wrapped in more instruction than cloth and allowed to go.
-
-The job was a roof repair at the house of an older couple whose sons were elsewhere and whose roof edge had begun to fail above a storage area.
-Daniel walked part of the way, was carried when his legs became inconvenient, demanded to walk again, tripped, denied tripping, and was carried the rest.
-
-Yosef set him in the safest available place, which Daniel judged insufficiently safe but better than most.
-
-“Stay,” Yosef said.
-
-Daniel stayed.
-
-At first.
-
-The roof was low, which allowed Daniel to see too much.
-Yosef climbed only a short distance, braced himself, and began removing damaged covering near the edge.
-The older man who owned the house handed up materials while explaining at length why the problem had appeared suddenly.
-
-It had not appeared suddenly.
-
-Daniel could see the history from the ground.
-
-Water had been finding the same path for a long time.
-A corner had been patched without changing the slope.
-The patch had trapped moisture.
-The supporting piece beneath had softened.
-The edge sagged.
-The sag held more water.
-The water deepened the sag.
-
-A circle.
-
-Buildings loved circles of failure.
-So did people.
-
-Yosef found the softened piece and made the sound he made when a problem had confirmed his suspicion but not improved his mood.
-
-The older man said something defensive.
-
-Yosef said nothing.
-
-This was one of his talents.
-
-Daniel watched the repair unfold.
-
-First, clearing.
-Always clearing.
-People wanted to begin with new material because new material looked like progress.
-Yosef removed the failed portion, exposed what remained, and touched each part before deciding whether it stayed.
-
-Then drying.
-Or as much drying as the day allowed.
-
-Then cutting.
-Not beautiful cutting.
-Necessary cutting.
-
-Then fitting.
-
-Daniel leaned forward.
-
-Yosef was using a salvaged piece.
-
-Bad choice, Daniel thought automatically.
-
-Then he looked again.
-
-The piece was not ideal, but it was better than it first appeared.
-One side had a curve that matched the old sag if turned not as Daniel would have turned it but as Yosef was turning it.
-The grain was wrong for one use and adequate for another.
-The end split could be cut away without losing needed length if the joint shifted slightly.
-
-Yosef was not making the roof as it should be.
-
-He was making the roof as it could be, today, with what the house owned.
-
-Daniel felt the familiar irritation of wisdom approaching.
-
-He resisted.
-
-Yosef placed the piece.
-
-It fit.
-
-Not perfectly.
-
-Better than Daniel had expected.
-
-The old man made an impressed sound.
-
-Yosef accepted this with the weary humility of someone who still needed to be paid.
-
-Daniel stood.
-
-“Stay,” Yosef said without looking down.
-
-Daniel sat.
-
-This was unfair.
-He had not even finished standing.
-
-The old woman of the house brought water and a small piece of bread.
-She gave the bread to Daniel.
-
-He accepted it with suspicion, then ate it because suspicion was not filling.
-
-She watched him watch the roof.
-
-“You have his eyes,” she said.
-
-Daniel looked at her.
-
-She nodded toward Yosef.
-
-“Always measuring.”
-
-Daniel considered this.
-
-He did not have Yosef’s eyes.
-He had Daniel’s eyes, Linda’s eyes maybe, or Robert’s, though in this body perhaps he had Maryam’s, or someone else’s entirely.
-He did not know.
-He had avoided thinking about his face.
-Mirrors were scarce, polished surfaces unreliable, and self-recognition dangerous.
-
-The woman saw a son watching his father.
-
-Daniel did not correct her.
-
-After the repair, Yosef came down and inspected from the ground.
-
-This pleased Daniel.
-The ground view mattered.
-Roofs did not fail only for the person above them.
-
-Yosef looked at him.
-
-“Well?”
-
-Daniel blinked.
-
-Yosef nodded toward the roof.
-
-Daniel stood and studied the repair as seriously as his small body allowed.
-
-The slope was better.
-The edge still not ideal.
-The salvaged piece would hold if the covering was maintained and the water kept moving.
-The weak point was where old material met new, because it always was.
-He pointed.
-
-“Watch there,” he said.
-
-The old man frowned.
-
-Yosef looked at the point.
-
-Then he nodded.
-
-The old woman made a small sign with her hand and looked away.
-
-Daniel did not want gestures attached to him.
-
-Yosef saw that too.
-
-“We watch roofs,” he said lightly.
-“That is all.”
-
-The old woman smiled, but the smile did not agree.
-
-On the walk home, Yosef carried him.
-
-Daniel was tired enough to permit this without protest.
-
-For a long time, Yosef said nothing.
-
-Then: “When people are afraid, they look for signs.”
-
-Daniel kept his head against Yosef’s shoulder.
-
-“When people are grateful, also.”
-
-Daniel listened.
-
-“If they look at you that way, look away.”
-
-Daniel had already learned this, but hearing Yosef say it made the rule heavier.
-
-“Why?”
-
-Yosef shifted him higher.
-
-“Because people take what they need from a child who looks back.”
-
-Daniel did not understand fully.
-
-He understood enough.
-
----
-
-That evening, Daniel asked Maryam what his face looked like.
-
-This was difficult, because he did not have all the words.
-
-He touched his own cheek, then pointed at a polished metal dish.
-The dish returned only warped light.
-He made a frustrated sound.
-
-Maryam understood too quickly.
-
-“You want to see?”
-
-Daniel nodded.
-
-She hesitated.
-
-That frightened him.
-
-Then she took the dish, wiped it, angled it toward the lamp, and held it before him.
-
-The reflection was poor.
-
-A round face.
-Dark eyes.
-Hair that did whatever it wanted.
-A serious mouth, though perhaps that was only because he was making it serious.
-He stared and waited for recognition.
-
-None came.
-
-Not Daniel.
-
-Not anyone he knew.
-
-A child.
-
-A stranger.
-
-He lifted one hand.
-The child in the dish lifted his.
-
-Daniel lowered it.
-
-So did the child.
-
-He felt anger first.
-Anger was easier than grief.
-Anger at the poor reflection, the bad light, the useless dish, the wrong face, the smallness of the hand that rose when he commanded it.
-
-Maryam moved to take the dish away.
-
-“No,” he said.
-
-She stopped.
-
-He looked longer.
-
-The face did not become his.
-
-But it did not go away either.
-
-Maryam sat beside him in silence.
-
-At last he touched the reflection with one finger.
-
-The metal cooled his skin.
-
-“Who?” he asked.
-
-Maryam looked at him in the dish rather than directly.
-
-“My son,” she said.
-
-He closed his eyes.
-
-That answer was not enough.
-
-It was also too much.
-
-Later, when Yosef returned, Maryam told him quietly.
-Daniel pretended to sleep and listened.
-
-“He asked to see himself.”
-
-Yosef set something down.
-A tool, perhaps.
-Something wooden.
-
-“All children do.”
-
-“Not as he did.”
-
-A pause.
-
-“He is learning,” Yosef said.
-
-Maryam’s voice was soft.
+“Has a gate, though.”
 
 “What?”
 
-“To be here.”
+“She lets work through.”
 
-Daniel kept his eyes closed.
+Daniel thought about that.
 
-Yosef was wrong.
+Maryam did not stop him from seeing.
+She stopped people from consuming seeing.
+That distinction would take him years to understand fully.
 
-No.
+At the time, he mostly felt relieved and annoyed.
 
-Yosef was partly wrong.
+Relieved because being tested made his skin crawl.
 
-Daniel was not learning to be here.
-He was learning that refusing to be here did not make him elsewhere.
-
-This distinction mattered.
-
-It also helped no one.
+Annoyed because some objects were interesting.
 
 ---
 
-A roof failed three days later.
+The quick-handed girl became Mara officially when she stole his sanding stone and made him ask for it back by name.
 
-Not the roof Daniel had called tired.
-Another one.
-Farther away.
-A storehouse lean-to near a relative’s courtyard, or a neighbor’s cousin’s place; kinship made geography complicated.
-Daniel heard the failure before he saw it: a dull crack, shouts, the panicked clatter of people running toward a problem that had already happened.
+He had known the sound before then.
+Adults used it sharply.
 
-Yosef was out the door before the second shout.
+“Mara.”
 
-Daniel followed.
+“Mara, down.”
 
-Maryam caught him by the back of his tunic.
+“Mara, not that.”
+
+“Mara, give it back.”
+
+“Mara, where did you get that?”
+
+The last question seemed to define her childhood.
+
+She took his sanding stone during a courtyard repair and sat just out of reach.
+
+“Mine,” Daniel said.
 
 “No.”
 
-He twisted.
+“Yeshua’s.”
 
-“No.”
+She looked at the stone.
 
-Her grip tightened.
+“Stone does not know names.”
 
-“Stay.”
+That was irritatingly philosophical.
 
-He knew that tone.
-It was the tone of a load-bearing wall.
+“I need.”
 
-He stayed.
+“For what?”
 
-But the courtyard opened toward the lane, and from the doorway he could see fragments: dust rising, people moving, someone calling for a rope, Yosef’s shoulders as he vanished into the crowd.
+He pointed to the scrap he was smoothing.
 
-Daniel’s heart pounded.
+She inspected the scrap.
 
-He was small again.
-Not merely child-small.
-Beam-small.
-Rain-small.
-One-second-small.
+“You missed the corner.”
 
-The old terror came back with such force that the lane blurred.
+“I know.”
 
-He saw the apprentice’s boots in mud.
+“You did not.”
 
-He heard the strap twang.
+“I was going to.”
 
-He felt the hoodie in his fist.
+“You were not.”
 
-Move!
+He lunged.
 
-He made a sound.
+She moved.
 
-Maryam crouched before him and took his face in both hands.
+He fell.
 
-“Here,” she said.
+This was not his finest moment.
 
-He tried to look past her.
+Mara laughed until Maryam said her name in the low tone.
 
-“Here,” she repeated.
+Mara stopped laughing but did not look sorry.
 
-He dragged breath into his body.
+Daniel sat up, dusty and furious.
 
-The shouts continued.
+“Give.”
 
-No one screamed as if crushed.
-That mattered.
-He listened for the difference and hated that he knew it.
+“Ask.”
 
-After a time that had no shape, Yosef returned.
+“I did.”
 
-Dust covered his hair and shoulders.
-His sleeve was torn.
-His hands were dirty.
-No blood.
+“Name.”
 
-Daniel scanned him for injury anyway.
+He glared.
 
-Yosef saw.
+“Mara.”
 
-“No one died,” he said.
+She handed it over immediately.
 
-Daniel sat down hard on the threshold.
+This surprised him.
 
-Maryam’s hand went to his shoulder.
+She shrugged.
 
-No one died.
+“Names are useful when not wasted.”
 
-The words moved through him slowly, finding places to rest.
+Then she ran before he could decide whether to respect or despise her.
 
-Yosef drank water, wiped his face, and sat on the ground opposite Daniel rather than on the bench.
-This lowered him.
-Made him near.
+Both, eventually.
 
-“It was empty,” he said.
-“Mostly.”
+---
 
-Mostly was a cruel word.
+The lesson of the bad roof became a rule in Yosef’s workshop.
 
-“A boy was near.
-He ran.”
+“Water first,” Yosef would say.
 
-Daniel pressed his hands together to stop them shaking.
+When examining a wall, roof, threshold, sill, storage platform, anything that met weather.
 
-Yosef watched the hands.
+Where does water go?
 
-“How did it fail?” Maryam asked.
+Where does it stay?
 
-Yosef exhaled.
+Who notices first?
 
-“Water.
-Weight.
-Old wood.
-No one looking.”
+Who ignores it longest?
 
-Daniel laughed once.
+What did someone cover?
 
-It came out wrong.
+What did someone accept because repair cost more than denial?
 
-Both adults turned to him.
+Daniel learned to ask those questions of buildings.
 
-He could not explain.
-The answer was too complete.
-Water.
-Weight.
-Old wood.
-No one looking.
-That was not only how roofs failed.
-That was how everything failed.
+Maryam learned to ask them of people before he did.
 
-Yosef leaned forward.
+A woman’s anger pooling in one corner of a conversation.
+A man’s shame seeping behind jokes.
+A child’s silence darkening where hunger entered.
+A debt stain painted over with gratitude language.
+A rumor traveling along the slope of fear.
 
-“You cannot watch every roof.”
+“Water first,” Maryam said once, after redirecting a dispute about a borrowed jar into a quiet discussion of who had been walking farthest for water and why.
 
-Daniel looked at him.
+Yosef looked at her.
 
-“You cannot,” Yosef said again.
+She looked back.
 
-Daniel wanted to say that someone had to.
+The phrase became larger.
 
-But that was childish.
+Daniel disliked when useful phrases expanded.
 
-Worse, it was adult in exactly the way that had gotten him killed.
+It made them harder to control.
 
-Maryam brushed dust from Daniel’s hair, though he had not gone anywhere.
+Mara loved it.
+
+“Goats first,” she suggested.
+
+No one adopted this.
+
+For now.
+
+---
+
+The first real danger came from a roof that was not theirs and not ugly enough.
+
+It belonged to a widow named Sera, though the property belonged to a male cousin who enjoyed ownership more than maintenance.
+The roof over her storage room had begun to sag near one corner.
+Not much.
+Enough for Daniel to see.
+Enough for Yosef to notice after Daniel stared too long.
+Not enough for the cousin to admit.
+
+“She exaggerates,” the cousin said.
+
+Sera stood behind him, silent.
+
+Maryam looked at her.
+
+Daniel saw the room before he saw the roof: who spoke, who did not, who owned, who carried the result if grain spoiled.
+
+Yosef inspected from below.
+
+He did not like it.
+
+“Needs support.”
+
+“It has support.”
+
+“More.”
+
+The cousin waved a hand.
+
+“After harvest.”
+
+Maryam said, “If it fails before harvest?”
+
+“It will not.”
+
+Only and will not were close relatives.
+
+Daniel looked at Sera.
+Her eyes were on the grain jars.
+
+Not the roof.
+
+The jars.
+
+He understood: the roof was not danger in the abstract.
+It was winter food.
+
+He said, “Move grain.”
+
+The cousin frowned.
+
+“What?”
+
+“Move grain.
+Now.”
+
+Adults disliked child imperatives.
+This remained true.
+
+Maryam stepped in.
+
+“Until support is added, move what loss would harm most.”
+
+Yosef nodded.
+
+“Good.”
+
+The cousin objected because moving grain admitted risk and created work.
+Sera did not object.
+She began lifting smaller jars immediately.
+
+That decided the room.
+
+Maryam lifted one.
+Yosef another.
+Daniel took a basket too small to matter and carried it with intense seriousness.
+Mara appeared from nowhere and carried more than he did.
+
+Halfway through, a piece of roof plaster fell.
+
+Not the roof.
+
+Just plaster.
+
+Enough.
+
+The cousin went pale.
+
+No one said told you.
+
+This was an act of spiritual discipline.
+
+The roof was braced that afternoon.
+The cousin paid partly in grain, partly in labor, partly in injured pride.
+Sera’s storage stayed dry enough.
+
+Later, Mara said, “You wanted to say it.”
+
+“Yes.”
+
+“Why didn’t you?”
+
+“Maryam would know.”
+
+“Fear of mother.
+Strong foundation.”
+
+Daniel did not deny it.
+
+---
+
+That night, Maryam sat beside him outside while the sky cleared.
+
+“You were right,” she said.
+
+Daniel looked at her warily.
+
+“Yes.”
+
+“And nearly careless.”
+
+He looked away.
+
+Also yes.
+
+Maryam continued, “If you say move grain and people move it, you carry some of what happens next.”
+
+“I know.”
+
+“You know roofs.
+You are learning people.”
+
+He did not like how often she made sentences impossible to reject.
+
+She touched his hair.
+
+“Yeshua.”
+
+The name was gentle.
+
+Not accusation.
+
+Not command.
+
+Return.
+
+He looked at her.
+
+“What if roof falls?”
+
+“Then we grieve and work.”
+
+“What if I see and say nothing?”
+
+“Then you grieve and learn why you were silent.”
+
+“What if I say and people hate?”
+
+“Then you ask whether hate is the cost or a sign you spoke badly.”
+
+Too many possibilities.
+
+He wanted rules.
+
+Maryam gave him work instead.
 
 “Some roofs are not yours,” she said.
 
-He hated that more than anything.
+He hated that.
 
-Because it was false.
+She continued before he could object.
 
-Because it was true.
+“But if people stand beneath one, you may still have duty.”
 
-Because it depended on the meaning of yours.
+Also hated.
 
-That night he dreamed of the first beam again, but when it fell, it did not strike him.
-It hung above him, suspended in darkness, wrong and waiting.
-Beneath it stood not the apprentice but every person he had seen since waking into this life: Maryam, Yosef, the girl with quick hands, the young man with the lying ladder, the coughing child, the neighbor with the cracked handle, strangers with no names and faces blurred by smoke.
+“Then how know?”
 
-He tried to shout.
+Maryam smiled sadly.
 
-No sound came.
+“You ask.
+You listen.
+You do not decide alone if there is time.”
 
-He woke with Maryam already holding him.
+There it was.
 
-Yosef sat awake by the door.
+A sentence that would follow him into rivers, hills, storms, gardens, and rooms where men asked questions with clean hands.
 
-Neither asked what he had dreamed.
+Do not decide alone if there is time.
 
-Daniel looked up.
+He leaned against her.
 
-The beam overhead held.
+For once, he let himself be a child doing it.
 
-He did not trust it because it held.
+Inside, Yosef called, “Yeshua.”
 
-He trusted it because Yosef had checked it, Maryam had watched the smoke under it, and he had learned enough to know that holding was not a state but a practice.
+Then, after a pause, “Mara.
+If you are taking the good cord, return it.”
 
-In the morning, he went to the courtyard and looked at the sky instead of the roofs.
+Mara’s voice from somewhere above answered, “Define good.”
 
-The girl with quick hands found him there.
+Maryam closed her eyes.
 
-“What are you looking at now?” she asked.
+“Lord preserve us.”
 
-Daniel thought about saying weather.
+Daniel smiled.
 
-He thought about saying nothing.
+The roofs held that night.
 
-He thought about telling her that roofs were only the underside of the sky, and all shelter was temporary, and knowing what might fall did not mean you could stand under everything.
+Not forever.
 
-Instead he said, “Clouds.”
-
-She looked up.
-
-“Do clouds fall?”
-
-“Yes,” Daniel said.
-
-She stared at him.
-
-He pointed toward the distant hills, where the gray edge of weather gathered.
-
-“As rain.”
-
-She considered this, then nodded as if he had finally said something normal.
-
-“Good,” she said.
-“My mother says the jars are low.”
-
-Then she ran off.
-
-Daniel remained in the courtyard, looking at the sky.
-
-By noon, the rain came.
-
-The roofs received it.
-
-Some held.
-Some leaked.
-Somewhere, someone cursed.
-Somewhere, someone laughed and moved a jar under a drip.
-Maryam shifted cloth away from a damp wall.
-Yosef returned early to check the repaired lean-to.
-Daniel followed him, small feet slipping in the mud, and was not told to go back.
-
-Together, they watched the water move.
-
-Not where it should have gone.
-
-Where it could.
-
-Yosef adjusted one channel with his heel.
-
-Daniel pointed to another.
-
-Yosef looked, then changed that too.
-
-For a while neither of them spoke.
-
-The rain struck the roof, ran down the edge, missed the post base, and disappeared into the dirt where it could do less harm.
-
-Daniel breathed.
-
-The roof was not tired.
-
-Not yet.
+For now.
