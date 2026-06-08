@@ -164,8 +164,6 @@ This was a fair critique.
 
 Daniel shouted at the chicken.
 
-Mara had not yet entered his life, so no one properly appreciated the moment.
-
 Yosef rebuilt the diagram after the chicken left.
 
 “Strong?” he asked.
@@ -387,8 +385,6 @@ Naturally.
 
 He did not know her name yet.
 
-Mara would come later.
-
 For now she was the first peer in this world to criticize his workmanship accurately and leave.
 
 Daniel disliked her immediately.
@@ -460,8 +456,6 @@ Yosef asked, “If load here?”
 Daniel looked at the owner.
 
 “Smart.”
-
-Mara would have applauded.
 
 Maryam coughed.
 

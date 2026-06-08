@@ -316,9 +316,6 @@ Maryam laughed.
 
 “He likes danger,” Yosef said.
 
-Mara had not yet entered his life.
-If she had, she would have approved this diagnosis.
-
 Yosef carried him near the bench but not within reach.
 He let Daniel look.
 
@@ -789,8 +786,6 @@ Also true.
 “He is not for testing,” she added.
 
 That one mattered.
-
-Mara would later approve.
 
 Daniel learned another rule before he had words for it:
 
