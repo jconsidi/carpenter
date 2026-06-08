@@ -158,8 +158,6 @@ No public angels.
 
 No voice from sky.
 
-No printed name for the reader, though the world around him spoke it daily.
-
 No miracles.
 
 No wine changed.
@@ -358,11 +356,8 @@ Natan's face changed.
 
 So did the room.
 
-The new name had always existed in the world of the story, spoken daily by those who loved him, feared him, asked him, fed him, scolded him.
+The new name had always existed in this world, spoken daily by those who loved him, feared him, asked him, fed him, scolded him.
 It had been withheld not from Maryam, Yosef, Mara, Erel, Natan, Dalia, Ruth, Hanina, or the people around them.
-It had been withheld from the telling.
-From the reader.
-From the final click of recognition.
 
 Natan knew it.
 

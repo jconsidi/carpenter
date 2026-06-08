@@ -2010,8 +2010,6 @@ Maryam touched his cheek.
 
 "Both," he answered.
 
-The reader still did not get the second.
-
 Not yet.
 
 ---
@@ -2039,8 +2037,6 @@ No need owns a person entirely.
 If you came for him, you missed the object.
 
 If you need a title to do mercy, you are lazy.
-
-Not official, but Ruth.
 
 I am not the beam.
 
