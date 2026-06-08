@@ -1,1472 +1,757 @@
 # Chapter 6 — No Miracles, Only Materials
 
-Daniel expected illness to feel more meaningful.
+The fever taught him spite.
 
-This was unreasonable.
-He knew it was unreasonable.
-Illness had never been meaningful in his first life either, not really.
-A fever was not a message.
-A cough was not a plot device.
-A stomach sickness did not arrive because a man needed humility, although it could produce humility faster than almost any sermon.
+Not spiritual spite. Bodily spite. The kind that rises when a person discovers that knowing many things about hydration, infection, inflammation, and public health does not give him access to antibiotics, sterile saline, thermometers, acetaminophen, or the ability to sit upright without vomiting.
 
-Still, after death, after waking into another body, after years of wrong beams and strange memories and stories gathering at the edges of his life like storm water, he had expected some part of the universe to have a better filing system.
+Yeshua was eight.
 
-Instead, he got a fever.
+Daniel had been older than that when he died, which made the fever feel like theft twice over: first of health, then of dignity. He lay on a mat under a thin cloth, sweating through one hour and shivering through the next, while Maryam wiped his face and Yosef sat near the doorway pretending not to look afraid.
 
-A simple, stupid fever.
+Mara came once, was told to stay away, and shouted from outside, “If he dies, tell him I still have his good stone.”
 
-It began with heat behind his eyes and a taste in his mouth like old metal.
-By midday, his skin hurt.
-By evening, the room had become too bright and too dim at the same time.
-Maryam pressed a damp cloth to his forehead.
-Yosef stood near the doorway, trying not to look frightened and failing because Daniel knew the shape of controlled fear too well.
+Maryam snapped, “Mara.”
 
-“I am fine,” Daniel said.
+“What? It gives him something to resist.”
 
-Maryam wrung out the cloth.
+Daniel would have laughed if his bones had not been busy becoming sand.
+
+The fever filled the room.
+
+It shrank everything. The roof became too far away. The doorway too bright. Voices came through water. Maryam’s hand on his forehead was the only measurement that mattered, though the old Daniel wanted numbers. Degrees. Trends. Pulse. Intake. Output. Anything with units.
+
+He had none.
+
+He had cloth, water, shade, prayer, watching, and people who knew fear without surrendering the room to it.
+
+“Yeshua,” Maryam said.
+
+He opened his eyes because the name still worked, annoyingly.
+
+“Drink.”
 
 “No.”
-
-“It is only heat.”
 
 “Yes.”
 
-“I can sit.”
+The argument was brief because Maryam did not believe fever granted authority.
 
-“No.”
+He drank.
 
-This was the entire argument.
-Maryam won.
+Vomited.
 
-Daniel lay under a thin covering and glared at the ceiling.
+Cried from rage.
 
-The beam overhead was sound.
-He had inspected it for years.
-It ran straight enough, bore where it should, and had been checked by Yosef after each hard rain.
-There were no greedy notches, no proud pegs, no wedge asked to do permanent work in secret.
+Maryam cleaned him.
 
-It held.
+“Again later,” she said.
 
-Daniel hated that he found this comforting.
+This was care as siege warfare.
 
-His body shivered despite the heat.
+Yosef asked quietly, “What do you need?”
 
-He had forgotten, in the arrogant way of the healthy, how completely illness reduced a person.
-He was no longer a displaced adult mind, a hidden reincarnation, a watcher of roofs, a child with old eyes, a possible error in history.
-He was a hot, aching boy who wanted water and could not sit up without the room tilting.
+Daniel almost said IV fluids.
 
-No miracles, he thought.
+The phrase existed in his head like a tool behind glass.
 
-The thought came with anger before it came with fear.
+Instead he whispered, “Cool.”
 
-No shining certainty.
-No hidden reservoir of power.
-No divine warmth in his palms.
-No instinctive command over flesh.
-No secret knowledge of herbs beyond what he had half-learned by watching Maryam and other women argue people back toward survival.
+Maryam adjusted cloth. Yosef opened the door enough for air but not enough for glare. Someone brought water from a cooler jar. Someone else argued about whether the child should be covered more. Maryam listened and ignored half.
 
-He could not lower his own fever by will.
+No miracle came.
 
-He could not make pain step aside.
+This was important.
 
-He could not even keep himself from whimpering once when Maryam lifted him to change the cloth beneath his neck.
+No light entered. No voice spoke. No power moved through his hands. He did not command fever away. He did not discover that being Yeshua meant the body obeyed him better than other bodies did. His joints ached. His throat burned. His stomach rejected offerings. His head filled with broken songs from the old world and Maryam’s voice from this one.
 
-She heard.
+At the worst of it, he thought: If I am who I fear, this is a stupid way to prove otherwise.
 
-Of course she heard.
+Then he thought: If I am not, children still die of fevers.
 
-Her face tightened, but she did not speak.
-She only held him more carefully.
+That was worse.
 
-That made it worse.
-
-Yosef went out and came back with an older woman who smelled of smoke, mint, and confidence.
-Not the same old woman who had attended Daniel’s birth, though perhaps all competent old women occupied a similar office in the world.
-This one sat beside him, asked Maryam questions, touched his forehead, examined his eyes, smelled his breath, and looked at the bowl near the bed with professional interest.
-
-Daniel objected to this last part in principle.
-
-The old woman ignored him.
-
-She made a drink that tasted like bitterness had been soaked in regret.
-Maryam held the cup.
-Daniel refused.
-Maryam waited.
-Daniel refused again.
-Yosef crouched beside him and said nothing.
-
-That was unfair.
-
-Words could be argued with.
-Yosef’s silence was a level.
-
-Daniel drank.
-
-The old woman nodded as if she had personally defeated disease.
-
-The night stretched.
-
-Fever loosened the walls between lives.
-
-He dreamed of the modern hospital where Robert had spent three nights after a fall from a ladder.
-Too much light.
-Rubber floors.
-Machines that made soft sounds.
-A nurse who knew more than the doctor and less than she wanted.
-Linda asleep in a chair with her coat still on.
-Daniel sitting beside the bed, furious at the ladder, at Robert, at gravity, at every rung ever made.
-
-Then the hospital dissolved, and he was back under the beam on the job site.
-Rain struck his face.
-Someone shouted that it was fine.
-The beam dropped again and again, but this time it fell slowly enough for him to see every fiber separate.
-
-He woke crying.
-
-Maryam was there.
-
-She always seemed to be there when he woke from the worst dreams, as if fear made a sound only mothers could hear.
-
-“You are here,” she said.
-
-He had heard this before.
-
-He believed it less during fever.
-
-“Here is small,” he whispered.
-
-Maryam touched the cloth to his lips.
-
-“Yes.”
-
-He tried to laugh.
-It became a cough.
-
-Yosef moved in the dark.
-
-The cough worsened.
-
-For several terrifying seconds, Daniel could not get enough air.
-
-Then Maryam had him upright.
-Yosef was behind him.
-The old woman was saying something sharp.
-Steam appeared from somewhere.
-Daniel breathed wet heat and bitterness and smoke and human fear.
-His body fought itself.
-Then the cough broke loose, ugly and productive, and air came back.
-
-He lay against Maryam, exhausted.
-
-No miracles.
-
-Only hands.
-
-Only cloth.
-
-Only steam.
-
-Only someone awake enough to lift him before panic became worse than sickness.
-
-He slept again.
-
-By morning, the fever had not broken, but it had changed.
-The heat remained, yet his mind floated closer to the body.
-He could hear the room in order: Maryam’s breathing, Yosef sharpening something outside with unnecessary care, the old woman muttering over water, a goat complaining at a distance.
-Even goats, apparently, were permitted to survive into days when Daniel was too weak to oppose them.
-
-The old woman pronounced something over him.
-It may have been a practical instruction, a blessing, or both.
-Daniel no longer trusted the distinction.
-
-Maryam thanked her.
-
-Yosef paid her with something Daniel did not see.
-
-The fever left slowly, as if offended by eviction.
-
-For two days, he could not stand without help.
-
-On the third, he made it to the doorway and sat in the sun like an old dog.
-
-The world continued.
-
-This seemed rude.
-
-Children ran in the lane.
-Someone argued over a basket.
-Yosef repaired a hinge.
-Maryam beat dust from a cloth.
-Water moved along the edge of the courtyard in a path Daniel had meant to correct before sickness interrupted him.
-
-He had nearly died, perhaps.
-
-Or perhaps not nearly.
-Childhood fevers were common.
-This one might have been ordinary.
-The terrifying thing about ordinary dangers was that they did not announce whether they had come close to killing you.
-They only left, and everyone adjusted the story afterward.
-
-Maryam brought him watered milk.
-
-He took it with both hands.
-
-“You frightened us,” she said.
-
-“I did not do it on purpose.”
-
-“No.”
-
-Her mouth moved, almost a smile.
-
-Then it vanished.
-
-“You kept saying no miracles.”
-
-Daniel went still.
-
-He did not remember saying that aloud.
+He turned his face into the cloth and wept.
 
 Maryam sat beside him.
 
-“What did you mean?”
+“Daniel?” she whispered.
 
-He looked at the cup.
+The old name was used only inside safe rooms, when the old wound might be speaking.
 
-The honest answer was too large and too dangerous.
-The dishonest answer felt insulting after she had kept him alive through the night.
+He shook his head.
 
-“I do not know what I expected,” he said.
+“Yeshua,” he said, though the sound came out broken.
 
-Maryam waited.
+Maryam touched his hair.
 
-He hated how good she was at waiting.
+“Yeshua, then. Drink later.”
 
-“I thought if there was a reason for this,” he said slowly, “there might be more help.”
+He slept.
 
-Maryam looked across the courtyard, where Yosef had set the hinge aside and was pretending not to listen.
+The fever broke near dawn two days after it began.
 
-“More help than what?”
+No one announced a sign.
 
-Daniel frowned.
+Maryam cried in the storage corner where she thought he could not hear. Yosef went outside and repaired a hinge that did not need repair until the hinge confessed under stress. Mara arrived with the stolen sanding stone and set it near his mat.
 
-She nodded toward the cup in his hands.
-Then toward the folded cloths drying on the line.
-Toward the doorway where Yosef sat.
-Toward the place the old woman had stood.
-Toward the sun.
+“I kept it alive,” she said.
 
-Daniel felt anger rise, then shame behind it.
+“Stone,” he croaked, “was never alive.”
 
-“That is not what I meant.”
+“Neither were you, briefly.”
 
-“I know.”
+“Mara,” Maryam warned.
 
-This did not improve matters.
+Mara looked at Yeshua, then at Maryam.
 
-Maryam touched his hair once, lightly.
+“He smiled.”
 
-“Reasons are heavy,” she said.
-“Do not carry one before you must.”
+He had.
 
-Daniel looked at her.
-
-This, like many of Maryam’s sentences, was both kind and almost completely unusable.
-
-“I am tired of not knowing,” he said.
-
-“Yes.”
-
-“What am I supposed to do?”
-
-“Get well.”
-
-He stared.
-
-She stood and brushed dust from her skirt.
-
-“Start there.”
-
----
-
-Recovery was humiliatingly slow.
-
-Daniel had imagined that once the fever left, he would resume life immediately.
-Instead, his body had been hollowed out and refilled with damp straw.
-His legs trembled.
-His head swam.
-He became angry at a bowl because it was too heavy, then angrier because the bowl had done nothing wrong.
-
-Yosef did not take him to work for several days.
-
-Daniel protested.
-
-“You cannot walk to the well without sitting down,” Yosef said.
-
-“I can sit at work.”
-
-“You can sit here.”
-
-“Here has fewer tools.”
-
-“Yes.”
-
-This was presented as a benefit.
-
-Maryam gave him small tasks.
-
-At first, the tasks insulted him.
-
-Sort these beans.
-
-Hold this thread.
-
-Fold this cloth.
-
-Watch the bread while I fetch water.
-
-Then he discovered that convalescence revealed a different house.
-
-When he could not move much, he noticed rhythms he usually ran past.
-
-How Maryam placed water jars according to who would need them and when.
-How a cloth near the door was not merely a cloth but a dust barrier, a draft marker, and emergency wrapping.
-How Yosef set tools down at angles that made sense only if you knew which hand would reach next.
-How the old woman from the fever had left behind a bundle of herbs tied in a pattern that distinguished use from warning.
-
-The household was full of systems.
-
-Small ones.
-Invisible ones.
-Mostly made by people who would not have called them systems because they did not need a word to do the work.
-
-Daniel had spent years thinking his advantage was modern knowledge.
-
-That was becoming less true.
-
-His advantage, if it existed, was not that he knew better solutions.
-Better required materials, power, money, institutions, time, permission, and people willing to be improved by someone else.
-
-His advantage was that he had been trained by death to see failure early.
-
-No.
-
-That sounded too grand.
-
-He had been trained by work.
-
-Death had only made the lesson harder to ignore.
-
-He watched Maryam fold a cloth around a cooling loaf so that steam escaped without drying the crust too fast.
-
-“That is clever,” he said.
-
-Maryam looked surprised.
-
-“This?”
-
-“Yes.”
-
-“It is bread.”
-
-“It is moisture control.”
-
-She stared at him.
-
-He searched for a better phrase.
-
-“Keeping wet where it helps and away where it hurts.”
-
-Maryam considered this.
-
-Then she looked at the cloth, the bread, the steam.
-
-“Yes,” she said.
-“Bread.”
-
-Daniel sighed.
-
-A week after the fever, Yosef brought him a small piece of soft wood and a dull tool, not sharp enough to cut cleanly but pointed enough to mark.
-
-“No blades,” Maryam said immediately.
-
-Yosef held up the tool.
-
-“No blade.”
-
-“No blood.”
-
-Yosef looked at Daniel.
-
-“No blood.”
-
-Daniel nodded with what he hoped was solemn dignity.
-
-Yosef sat beside him in the courtyard and drew a line across the wood.
-
-“Mark,” he said.
-
-Daniel took the tool.
-
-His hand, still weak from illness, shook.
-The line wandered.
-
-He scowled.
-
-Yosef drew another line, slower.
-
-“Again.”
-
-Daniel marked again.
-
-The line improved.
-Not enough.
-Improved.
-
-Again.
-
-Again.
-
-Again.
-
-The tool dragged through the surface, leaving pale scratches.
-Daniel’s hand cramped.
-His shoulders tensed.
-His tongue pressed against his teeth with concentration.
-
-Yosef watched but did not correct too quickly.
-
-This was one of his gifts as a teacher.
-He let error become visible before naming it.
-
-When Daniel’s fifth line bent, Yosef took his wrist gently.
-
-“Not only fingers.”
-
-He placed Daniel’s elbow, adjusted his shoulder, shifted the wood, and showed him how the whole arm made the mark.
-
-Daniel had known this.
-
-In theory.
-
-His old body had known it so deeply that he had never thought of it.
-The new body did not know.
-Knowledge trapped in a dead hand did not transfer automatically to a living one.
-
-This offended him less than it once would have.
-
-He adjusted.
-
-The sixth line held straighter.
-
-Yosef tapped the wood.
-
-“Better.”
-
-Daniel smiled before he could stop himself.
-
-Maryam, watching from the doorway, saw.
-
-She said nothing.
-
-This was also a gift.
-
----
-
-A man came two days later with a broken yoke.
-
-Daniel knew the yoke before he knew the man.
-It entered the courtyard first, slung over one shoulder, one arm split where the curve had been stressed past patience.
-The man carried it as people often carried broken things: both accusing and embarrassed.
-
-Yosef took the yoke without comment.
-
-Daniel, seated near the wall with his marked wood, leaned forward.
-
-Yokes were interesting.
-
-They were morally complicated objects, though he did not yet have the vocabulary for why.
-They were shaped for labor and pressure, for making a body into a tool without breaking it too quickly.
-A good yoke spread force.
-A bad one punished flesh for the convenience of whoever owned the work.
-
-This yoke was bad.
-
-Not maliciously bad.
-Most bad work was not malicious.
-It was rushed, inherited, patched, underpaid, or made by someone who had solved yesterday’s problem at tomorrow’s expense.
-
-One side had worn smooth where it bore unevenly.
-The split followed a grain line that should have been read earlier.
-The repair cord had been wrapped where it looked reassuring rather than where force traveled.
-
-Daniel stood too fast, got dizzy, and sat again.
-
-Maryam’s hand moved toward him.
-
-“I am fine,” he said.
-
-She did not dignify that.
-
-Yosef turned the yoke in his hands.
-
-The man explained.
-An animal had balked.
-The load had shifted.
-The arm had cracked.
-He needed it repaired today.
-
-Today was a word that made bad work likely.
-
-Yosef traced the split.
-
-“It should be remade.”
-
-The man’s face closed.
-
-“I asked for repair.”
-
-“It will fail again.”
-
-“Then make it not.”
-
-Yosef said nothing.
-
-Daniel recognized the silence.
-It was the pause before a craftsman decided whether to explain reality to someone who had already voted against it.
-
-The man added, “I can pay for repair.”
-
-Not for remake.
-
-The courtyard shifted around that sentence.
-
-Maryam, from the doorway, lowered her eyes to the work in her hands.
-Not because she did not care.
-Because she did.
-
-Yosef looked at the yoke again.
-
-Daniel saw the calculation: material, time, payment, risk, reputation, the man’s need, the animal’s body, the family’s bread, the impossibility of doing good work for bad terms, the equal impossibility of refusing every bad term.
-
-This was where modern Daniel would have said no.
-
-Modern Daniel, with contracts and invoices and building codes and the ability to walk away from a client who did not want safe work, at least in theory.
-Modern Daniel had walked away less often than he liked to remember.
-He had compromised too.
-He had called things acceptable because acceptable was sometimes the only bridge between failure and rent.
-
-Yosef did not look at Daniel.
-
-Daniel was grateful.
-
-If asked, he would have said remake.
-
-If responsible, he might have said repair.
-
-Yosef set the yoke on supports.
-
-“Not today,” he said.
-
-The man stiffened.
-
-Yosef continued before he could object.
-
-“I can bind it today.
-It may hold.
-It may not.
-If it fails, the animal is hurt, the load is lost, and you pay twice.
-Or I shape a new arm.
-It takes longer.
-You bring the rest tomorrow.
-I fit it properly.”
-
-“I said I cannot pay for new.”
-
-“You can pay part.
-The rest after harvest.”
-
-The man laughed without humor.
-
-“You trust harvest?”
-
-“No,” Yosef said.
-“I trust bad repairs less.”
-
-Daniel felt something open in his chest.
-
-The man paced once across the courtyard.
-He looked at the yoke, at Yosef, at Maryam pretending not to listen, at Daniel sitting too upright beside the wall.
-
-“Tomorrow,” he said finally.
-
-Yosef nodded.
-
-After the man left, Daniel asked, “Why not refuse?”
-
-Yosef picked up the yoke.
-
-“Because he needs it.”
-
-“Why not repair?”
-
-“Because it would fail.”
-
-“Why trust him?”
-
-Yosef looked tired.
-
-“I do not trust him.
-I know where he lives.”
-
-Maryam laughed from the doorway.
-
-Daniel blinked.
-
-Yosef’s mouth twitched.
-
-“Also,” he added, “his animal should not suffer because he is poor.”
-
-Daniel looked at the broken yoke.
-
-In his old life, safety had often been argued in the language of liability.
-Who would be responsible.
-Who would be sued.
-Who had signed off.
-Who had ignored the report.
-Those things mattered because systems needed teeth, and people without consequences developed expensive imaginations.
-
-But here was another argument.
-
-Not liability.
-
-Mercy with structure.
-
-Do the safer work.
-Arrange payment so safer work can exist.
-Know where the man lives.
-
-Daniel approved.
-
-He also suspected this was harder than any slogan about helping people.
-
----
-
-The new yoke arm took two days.
-
-Daniel watched as much as Maryam allowed and as much as his recovering body tolerated.
-
-Yosef selected wood from pieces Daniel would not have chosen first.
-This had become a familiar humiliation.
-Daniel looked for straightness.
-Yosef looked for use.
-
-The piece had a natural curve close to what was needed.
-A knot sat where Daniel distrusted it, but Yosef turned the pattern so force moved around rather than through it.
-He explained this, not because Daniel could fully do it yet, but because explanation was now part of their work.
-
-“Wood remembers how it grew,” Yosef said.
-
-Daniel ran his hand along the grain.
-
-“In my old world,” he said carefully, “wood was cut into straight pieces.”
-
-Yosef’s hands paused.
-
-They did not speak often of the old world while working.
-It made the air strange.
-But this had become allowed, sometimes, when the old world offered a comparison rather than a wound.
-
-“All wood?”
-
-“Much of it.”
-
-“Trees are not straight.”
-
-“We made them useful.”
-
-Yosef resumed shaving the piece.
-
-“Or obedient.”
-
-Daniel opened his mouth.
-
-Closed it.
-
-Yosef glanced at him.
-
-“This is not a rebuke.”
-
-“It felt like one.”
-
-“Yes,” Yosef said.
-“But it is not.”
-
-Daniel laughed.
-
-Yosef smiled.
-
-Then he handed Daniel the marked piece they had practiced on.
-
-“Show me where force goes.”
-
-Daniel studied the yoke.
-
-He traced the line from the center, through the curve, to the cracked arm’s end.
-He pointed to the split.
-
-“Here it tries to open.”
-
-Yosef nodded.
-
-“Why?”
-
-Daniel touched the grain.
-
-“Because the wood goes that way, but the work goes this way.”
-
-Yosef’s face changed.
-
-Not dramatically.
-Yosef rarely gave praise in large pieces.
-But something warmed.
-
-“Yes.”
-
-Daniel felt it like sun.
-
-Then Yosef asked, “Where would you bind?”
-
-Daniel pointed too quickly.
-
-Yosef waited.
-
-Daniel reconsidered.
-
-The obvious place was where the split had been.
-The useful place was ahead of the force, where binding could prevent the opening rather than decorate the failure.
-He moved his finger.
-
-“There.”
-
-Yosef nodded once.
-
-Better than praise.
-
-By the time the yoke was complete, Daniel understood it differently.
-Not as an object but as an agreement: between animal body, human need, wood grain, field, debt, weather, and hunger.
-If made badly, all those pressures met in flesh.
-
-When the man returned, Yosef fitted the yoke himself.
-
-The animal stood tense, enormous to Daniel’s child-height, hide twitching under flies.
-Daniel approached despite Maryam’s warning sound.
-
-Yosef saw and did not stop him.
-
-Daniel reached up and touched the smoothed bearing surface.
-
-No sharp edge.
-
-No proud knot.
-
-No hidden split.
-
-He nodded.
-
-The man laughed.
-
-“Does the child approve?”
-
-Yosef looked at Daniel.
-
-“Do you?”
-
-Daniel looked at the animal.
-
-Then at the yoke.
-
-“Yes.”
-
-The word embarrassed him.
-It sounded too formal.
-Too important.
-But Yosef accepted it gravely.
-
-The man paid part, as promised.
-Less than promised, perhaps.
-Maryam’s face suggested arithmetic had taken place and found disappointment.
-
-Yosef accepted the coins.
-
-After the man left, Daniel said, “He paid less.”
-
-“Yes.”
-
-“You knew?”
-
-“Yes.”
-
-“Then why—”
-
-“The animal did not pay less.”
-
-Daniel sat with that for a long time.
-
----
-
-The fever changed how people treated him.
-
-Not immediately.
-Not openly.
-But something in the household had shifted.
-He had been strange before.
-After the fever, he was fragile in addition to strange, which made adults more dangerous.
-Care multiplied around him.
-So did scrutiny.
-
-Maryam noticed when he tired.
-
-Yosef shortened lessons.
-
-The old woman brought bitter things and watched him drink them.
-
-The girl with quick hands appeared at the doorway and asked if he had died.
-
-“No,” Daniel said.
-
-“My cousin said you did.”
-
-“Your cousin is wrong.”
-
-“She is often wrong.”
-
-This seemed to satisfy her.
-
-She came in without invitation and examined the marked wood in Daniel’s lap.
-
-“What is that?”
-
-“Practice.”
-
-“For what?”
-
-“Lines.”
-
-She looked unimpressed.
-
-“Lines are everywhere.”
-
-“Straight lines are not.”
-
-She picked up the wood, turned it over, and drew one finger along the best mark.
-
-“This one is good.”
-
-Daniel tried not to be pleased.
-
-“It is acceptable.”
-
-She rolled her eyes.
-
-“You talk worse since being sick.”
-
-“I was quiet while sick.”
-
-“That was better.”
-
-He missed Claire suddenly, so sharply that the room seemed to step back.
-
-Not because the girl was like Claire.
-She was not.
-She was a child, quick and irritating and alive in this world.
-But the rhythm of being mocked without malice opened an old door.
-Claire at his kitchen counter.
-Claire saying, “You know, most people say thank you when complimented.” Claire leaving because Daniel had treated every relationship like something that could be maintained after work.
-
-The girl waved a hand in front of his face.
-
-“Did you die now?”
-
-“No.”
-
-“You looked dead.”
-
-“I was thinking.”
-
-“Same face.”
-
-Daniel gave her the flattest look available to him.
-
-She grinned.
-
-Then she lowered her voice.
-
-“People say you see breaks before they break.”
-
-“No.”
-
-“They do.”
-
-“They are wrong.”
-
-“Are they?”
-
-“Yes.”
-
-A pot near the wall began to hiss over.
-
-Daniel glanced.
-
-The girl followed his eyes, darted across the room, and pulled it back with a cloth before it spilled into the fire.
-
-Maryam turned from the doorway.
-
-The girl pointed at Daniel.
-
-“He saw.”
-
-Daniel said, “I heard.”
-
-This was true.
-
-Mostly.
-
-Maryam looked from one child to the other.
-
-“Both of you go outside.”
-
-The girl laughed and fled.
-
-Daniel stood more slowly.
-
-Outside, she waited near the wall.
-
-“You heard,” she said.
-
-“Yes.”
-
-“I saw you look first.”
-
-“Sound has direction.”
-
-“Liar.”
-
-Daniel stopped.
-
-She did not say it cruelly.
-She said it with delight, as if catching someone in a game.
-
-He did not like how easily the word landed.
-
-“I do not see the future,” he said.
-
-“I did not say future.”
-
-“I see what is happening.”
-
-“Before others.”
-
-“Sometimes.”
-
-“Then that is useful.”
-
-Daniel looked at the ground.
-
-Useful was another dangerous word.
-
-The girl crouched and drew a line in the dirt with a twig.
-It was not straight.
-
-“If I see a snake before you,” she said, “should I pretend not to?”
-
-“No.”
-
-“If you see a roof before me, same.”
-
-“A snake moves.”
-
-“So does a roof.
-Slower.”
-
-Daniel looked at her.
-
-She smiled, pleased with herself.
-
-He wanted to object.
-
-He could not.
-
-For the rest of the afternoon, they drew roofs in the dirt and argued over where water would go.
-She learned faster than he expected, which annoyed him until he remembered that intelligence had not been invented in his century.
-
-By sunset, she could identify the low point in a crooked line.
-
-“Water goes here,” she said.
-
-“Yes.”
-
-“Unless blocked.”
-
-“Yes.”
-
-“Then it goes there.”
-
-“Yes.”
-
-She nodded.
-
-“Roofs are sneaky.”
-
-Daniel considered this.
-
-“Yes.”
-
-This was, in its way, the foundation of structural education.
-
----
-
-His no-miracles rule became firmer after the fever.
-
-Not as bitterness.
-Not only.
-
-As method.
-
-If someone was sick, he would not assume hidden power.
-He would look for water, smoke, food, crowding, insects, wounds, heat, cold, fear, shame, and who had the authority to act.
-
-If something broke, he would not pray first for rescue from material consequence.
-He would examine load, grain, wear, weather, maintenance, and the person who had been told it was fine.
-
-If people spoke of signs, he would ask what need the sign answered.
-
-If a story grew, he would look for the small event at its root.
-
-This felt safer than faith and more honest than denial.
-
-It was also, Maryam pointed out, not enough.
-
-She did this after he told a woman that her son’s cough came from smoke and damp.
-
-He was right.
-
-Unfortunately, he was also six years old, blunt, and tired.
-
-The woman’s face closed as if he had struck her.
-She gathered the boy closer.
-
-Maryam intervened before Daniel understood the damage.
-
-“He means the room is fighting him,” Maryam said.
-
-The woman blinked.
-
-Maryam touched the child’s shoulder.
-
-“Some rooms hold smoke like a bad chest holds breath.
-Let Yosef look.
-Perhaps the room can be taught to breathe better.”
-
-The woman’s face changed again.
-
-Not healed.
-
-Opened.
-
-Later, after the woman left, Daniel said, “That is what I said.”
-
-“No,” Maryam said.
-
-“It was.”
-
-“You told her her house was hurting her child.”
-
-“It was.”
-
-“She knows.”
-
-Daniel stopped.
-
-Maryam set down the bowl she was washing.
-
-“She knows more than you think.
-She smells the smoke.
-She hears the cough.
-She knows damp cloth.
-She knows she has no better room.”
-
-Daniel looked away.
-
-“You gave her blame.”
-
-“I gave cause.”
-
-“Cause without care becomes blame.”
-
-He hated how neatly the sentence joined.
-
-“What should I have said?”
-
-Maryam wrung out the cloth.
-
-“What can be done.”
-
-Daniel thought of Yosef saying, not today, to the man with the yoke.
-
-“What can be done,” he repeated.
-
-“Yes.”
-
-“And if nothing can?”
-
-Maryam’s face became tired.
-
-“Then sit with her longer before saying so.”
-
-This was not an answer in the technical sense.
-
-It was, however, an answer in the human one.
-
-Daniel added it reluctantly to his growing list of things that were true and inconvenient.
-
----
-
-One evening, Yosef returned with a cut across his palm.
-
-Not deep.
-Not shallow enough.
-
-Daniel saw the cloth first.
-The way Yosef held his hand.
-The small red line at the edge where blood had found its way through.
-
-He was across the room before he remembered deciding to move.
-
-Maryam took Yosef’s wrist.
-
-“What happened?”
-
-“Chisel slipped.”
-
-Daniel said, “Show me.”
-
-Both adults looked at him.
-
-The old panic had already risen.
-Blood.
-Hand.
-Tool.
-Error.
-The body was small again, but the fear was full-sized.
-
-Yosef unwrapped the cloth.
-
-The cut ran diagonally across the palm below the fingers.
-It had bled well, which was good and horrible.
-The edges were clean.
-No obvious dirt.
-No tendon damage, though Daniel was not a doctor, not a doctor, not a doctor.
-
-“Water,” Daniel said.
-
-Maryam was already moving.
-
-“Clean cloth.
-Not that one.
-Clean.
-Boiled if—”
-
-He stopped.
-The word did not exist the way he needed it.
-Boiled cloth, clean water, pressure, keep it closed, watch for heat, swelling, red streaks.
-
-Maryam looked at him sharply.
-
-“I know,” she said.
-
-Of course she knew.
-
-Yosef sat.
-
-Daniel stood too close while Maryam cleaned the cut.
-Yosef’s jaw tightened, but he did not pull away.
-The sight of his hand open and vulnerable filled Daniel with unreasonable dread.
-Yosef’s hands were part of the architecture of the world.
-They were not allowed to fail.
-
-“Do not hover,” Maryam said.
-
-“I am not hovering.”
-
-“You are shaking.”
-
-Daniel looked at his hands.
-
-They were.
-
-Yosef noticed too.
-
-“It is small,” he said.
-
-“Hands are not small.”
-
-The sentence came out too fast.
-
-Yosef’s expression softened.
-
-Maryam wrapped the hand.
-
-Yosef flexed carefully and winced.
-
-Daniel wanted to shout at him not to flex, which was unfair because Maryam had told him to.
-
-“Rest it,” Daniel said.
-
-Yosef looked amused.
-
-“I had planned to juggle stones.”
-
-“Do not work.”
-
-The amusement faded.
-
-“I will work.”
-
-“No.”
-
-Yosef leaned back.
-
-Maryam suddenly became very interested in tying off the bandage.
-
-Daniel realized he had crossed from concern into command.
-
-He tried again.
-
-“If you work, it opens.
-If it opens, it dirties.
-If it dirties, fever.
-If fever—”
-
-His throat closed.
-
-Yosef looked at him carefully.
-
-“If fever,” he said, “Maryam gives me bitter water and orders me not to die.”
-
-Daniel did not smile.
-
-Yosef’s voice gentled.
-
-“I will be careful.”
-
-“That is what people say before not being careful.”
-
-Maryam made a small sound.
-Agreement or warning.
-
-Yosef looked at his wrapped hand.
-
-Then at the tools near the wall.
-
-Then at Daniel.
-
-“Tomorrow, I do not use the chisel.”
-
-Daniel exhaled.
-
-“Or saw.”
-
-Yosef frowned.
-
-“Now you bargain.”
-
-“Or saw.”
-
-Maryam said, “Or saw.”
-
-Yosef looked betrayed.
-
-Daniel felt better.
-
-The next day, Yosef worked anyway, but only on tasks that could be done with one hand and judgment.
-He instructed Daniel more.
-He directed a neighbor’s older boy.
-He let Maryam bind the cut again at noon without complaint.
-
-The wound healed.
-
-Slowly.
-
-Normally.
+Barely.
 
 No miracle.
 
-Only cleaning, pressure, rest, watching, and everyone’s irritation at being mortal.
+Only materials: water, cloth, shade, stubbornness, breath, bodies staying.
 
-Daniel found this both disappointing and deeply reassuring.
+It was enough this time.
+
+Enough was not proof.
+
+Enough was mercy.
 
 ---
 
-By the end of that year, Daniel knew three truths he trusted.
+After the fever, people became worse.
 
-First: bodies were materials, but not only materials.
+Not everyone. Not always. But enough.
 
-They had forces, limits, needs, failures, and maintenance.
-They also had fear, dignity, shame, habit, and memory.
-Treating only the material missed the person.
-Treating only the person could miss the thing killing them.
+A child recovering from illness attracts interpretation the way damp attracts mold. Someone said Maryam’s prayers had been favored. Someone said Yosef’s household was protected. Someone said Yeshua had fought death and won, which was offensively dramatic for a boy whose chief contribution had been vomiting. Someone said children with old eyes sometimes carried strange blessing. Someone else said fever leaving a child proved the fever had been sent as test.
 
-Second: poverty was structural.
+Maryam shut that last one down so hard the neighbor apologized twice and brought lentils.
 
-He did not have that phrase in the local language.
-He barely had it in his old one at six.
-But he knew the shape.
-Bad roofs were not separate from bad payments.
-Bad air was not separate from crowded rooms.
-Unsafe tools were not separate from scarce iron.
-Illness was not separate from smoke, water, work, food, and who could refuse whom.
+“Fever is fever,” she said afterward, stirring the lentils with more force than necessary.
 
-Third: every solution created a story.
+Daniel sat near the doorway, wrapped in a cloth, weak and irritable.
 
-A repaired yoke became proof of fairness or foolish trust, depending on who told it.
-A child pointing at a roof became old eyes.
-A fever survived became blessing, toughness, luck, herbs, Maryam’s care, Yosef’s payment, or evidence of whatever the listener already believed.
+“Sometimes fever kills,” he said.
 
-You could not stop stories.
-
-You could only try not to feed the worst ones.
-
-Daniel decided this was his work.
-
-Not destiny.
-Not prophecy.
-Not whatever shape waited in the old fragments he refused to assemble.
-
-Work.
-
-See what is weak.
-
-Ask what can be done.
-
-Do not mistake being right for helping.
-
-Do not stand under what falls.
-
-This last rule remained aspirational.
-
-One morning, after Yosef’s hand had healed enough to hold a tool properly, he took Daniel to a small repair at the edge of town.
-A storage wall had cracked after rain.
-The owner said the wall had always been sound.
-Yosef said walls did not crack from betrayal.
-
-Daniel liked that.
-
-They examined the base together.
-
-Water, again.
-
-Always water.
-
-It had washed soil from under one corner.
-Not much.
-Enough.
-The crack above merely told the truth of the missing support below.
-
-Yosef crouched.
-
-“What do you see?”
-
-Daniel knelt beside him and pressed fingers into damp earth.
-
-“Water comes here.”
+Maryam’s hand paused.
 
 “Yes.”
 
-“From there.”
+“Sometimes not.”
 
 “Yes.”
 
-“Wall loses foot.”
+“Not because child better.”
+
+Her face changed.
+
+“No.”
+
+“Not because mother prayed better.”
+
+Maryam turned from the pot.
+
+“No.”
+
+He had not meant to wound.
+
+He had.
+
+She came to him and knelt.
+
+“Yeshua.”
+
+He looked down.
+
+“I know,” she said.
+
+“What?”
+
+“That you are trying to protect the dead from the living.”
+
+He stared at her.
+
+She always found the beam under the plaster.
+
+Maryam continued, “Do it gently.”
+
+He nodded.
+
+She touched his cheek.
+
+“Also protect the living from pride.”
+
+That became another rule.
+
+Fever does not prove virtue.
+
+Recovery does not prove worth.
+
+Care is not a guarantee.
+
+Prayer is not a lever.
+
+Do it gently.
+
+He did not write it yet.
+
+He remembered.
+
+---
+
+Weakness lasted longer than Daniel approved.
+
+The body did not respect deadlines. It improved, then punished enthusiasm. He tried to stand too long and nearly fainted. He tried to carry a small water jar and spilled half. He tried to return to Yosef’s bench and discovered that arms which had done nothing for days had become decorative.
+
+Mara watched him fail to lift a board he had carried before.
+
+“Heroic.”
+
+“Go away.”
+
+“You look like wet bread.”
+
+“Go away more.”
+
+She sat.
+
+“You scared your mother.”
+
+“I know.”
+
+“You scared Yosef too.”
+
+“I know.”
+
+“You scared me less.”
+
+“Liar.”
+
+“Yes.”
+
+He smiled despite himself.
+
+Mara picked up the board and carried it badly but successfully.
+
+“See? Now I am stronger than you.”
+
+“Temporary.”
+
+“All strength is temporary. That is why insults must be prompt.”
+
+He did not have a response.
+
+She set the board down.
+
+“Do you feel different?”
+
+“Yes.”
+
+“Because fever?”
+
+“Yes.”
+
+“Because no miracle?”
+
+He looked at her.
+
+Mara’s quickness was not only hands.
+
+He said, “Yes.”
+
+She nodded.
+
+“Good.”
+
+“Good?”
+
+“If you had a miracle, you would become unbearable.”
+
+“I am already unbearable.”
+
+“Yes. Imagine more.”
+
+He laughed and coughed.
+
+Maryam called from inside, “Yeshua, rest.”
+
+Mara pointed.
+
+“Name with authority.”
+
+He rested.
+
+---
+
+The next repair came too soon and therefore properly.
+
+A neighbor brought a yoke with a familiar complaint: the animal resisted, the work suffered, the tool had held before, and surely the beast was stubborn. Yeshua, still pale from fever, sat near the doorway while Yosef inspected.
+
+The yoke was not as bad as the one from years earlier, but the strap had hardened and rubbed. The wood had warped slightly. One side sat lower. It would not kill the animal. It would only make work painful enough that every day became accusation.
+
+Daniel saw the sore before the owner mentioned it.
+
+“Animal hurt,” he said.
+
+The owner looked embarrassed.
+
+Yosef asked to see.
+
+There it was: raw skin under matted hair.
+
+Maryam brought water.
+
+The owner shifted.
+
+“It must work.”
+
+Maryam looked at him.
+
+“So must you.”
+
+He did not understand.
+
+Hanina, who was visiting with onions and no patience, said, “If your sandal cuts your foot, I will not beat you for walking badly.”
+
+The owner understood that.
+
+Progress.
+
+Yosef adjusted the yoke, softened and replaced the strap, reshaped the shallow curve. Yeshua wanted to help but was too weak to be useful. This made him angry. Yosef gave him a small piece of leather to hold anyway.
+
+“What do you see?” Yosef asked.
+
+“Hard.”
+
+“What else?”
+
+“Dry.”
+
+“What else?”
+
+“Was good. Now bad.”
 
 Yosef nodded.
 
-“What can be done?”
+“Materials change.”
 
-Daniel looked around.
+Daniel knew this.
 
-Stone nearby.
-Broken pottery.
-A slope that could be cut shallow.
-A channel that would carry water away if kept clear.
-The wall needed support, but support without drainage would only delay the next crack.
+Yeshua learned it again.
 
-“Move water first,” he said.
+A strap that had once fit could become harm. A practice that had once protected could become pressure. A refusal that had once saved could become evasion. A name that had once called home could become crowd. Not yet. Later. But the yoke began teaching before the lesson had language.
 
-The owner objected immediately.
+Maryam cleaned the sore.
 
-“The crack is there.”
+The animal trembled but did not pull away.
 
-Yosef did not look at the owner.
+Mara watched from the wall.
 
-He looked at Daniel.
+“Beast smarter than owner,” she said.
+
+The owner objected.
+
+Hanina said, “Do not defend yourself while your animal bleeds.”
+
+Good.
+
+Yosef handed the repaired yoke back with instructions and a look that made ignoring them expensive.
+
+After the owner left, Daniel said, “Care is not cure.”
+
+Maryam turned.
+
+“What?”
+
+He touched the water bowl, the strap, the place where the animal had stood.
+
+“Care helps. Sore still sore.”
+
+Maryam nodded slowly.
+
+“Yes.”
+
+“No miracle.”
+
+“No.”
+
+“Still work.”
+
+“Yes.”
+
+Mara dropped from the wall.
+
+“Write that later.”
+
+“I do not write lists.”
+
+“You should. Your head leaks.”
+
+It did.
+
+---
+
+The storage wall failed in rain.
+
+Not collapsed. Failed more politely. Water entered through the top edge where an old patch had cracked behind stacked baskets. The leak had been slow enough to hide and steady enough to spoil a sack of grain along one side.
+
+Maryam found it first.
+
+She said nothing for a moment.
+
+This was worse than shouting.
+
+Yosef came.
+
+Daniel came.
+
+Mara came because silence had weight.
+
+The grain smelled wrong.
+
+Not all of it. Enough.
+
+Hanina, summoned because grain and grief often needed onion government, sorted with Maryam. Good portion. Doubtful portion. Ruined portion. The categories were painful. Poverty made doubt larger and ruin harder to admit.
+
+Yeshua looked at the wall.
+
+“Top.”
+
+Yosef nodded.
+
+“Water down behind.”
+
+The old Daniel wanted waterproof membranes, flashing, sealant, better drainage, overhangs, standardized materials, money. Yeshua had clay, reed, labor, weather, and a household that could not afford to learn too slowly.
+
+They opened the wall patch.
+
+Behind it: damp, softened material, an old repair over an older failure.
+
+Yosef sighed.
+
+“Covered, not fixed.”
+
+Maryam held the spoiled grain.
+
+“That sentence is expensive.”
+
+They worked all day.
+
+Not because the wall was grand. Because every repair touched ten others. Move baskets. Sort grain. Dry what could be saved. Scrape bad material. Patch. Improve the top edge. Create a channel. Rearrange storage so the most vulnerable goods were not placed where hidden failure would reach first. Decide what to eat sooner. Decide what to mourn.
+
+No miracle turned spoiled grain sweet.
+
+No prayer reversed mold.
+
+No insight replaced lost food.
+
+Daniel hated this.
+
+Maryam watched him staring at the ruined portion.
+
+“Yeshua.”
+
+He looked up.
+
+“Do not make loss symbolic before we finish sorting.”
+
+He nodded.
+
+Another rule.
+
+The ruined grain was taken away.
+
+Not dramatically.
+
+Practically.
+
+Hanina said, “Mold is not a metaphor until after it stops being dinner.”
+
+Mara whispered, “Excellent.”
+
+Yosef repaired the wall.
+
+Maryam repaired the plan.
+
+Yeshua carried small baskets and learned again that seeing failure did not undo damage already done.
+
+That night, he wrote his first actual list on a scrap of smoothed wood with charcoal.
+
+No miracles, only materials.
+
+Then, after staring at it:
+
+Materials are not only things.
+
+Then:
+
+Water, cloth, shade, food, time, hands, names, rooms, shame, rest.
+
+Mara found the scrap.
+
+“You wrote a list.”
+
+“No.”
+
+She held it up.
+
+“This is a list.”
+
+“It is a note.”
+
+“Notes are young lists.”
+
+He took it back.
+
+She smiled.
+
+“Your head leaks less now.”
+
+---
+
+A woman came two days later asking for help with a feverish child.
+
+This was the first time Daniel understood how danger found openings in compassion.
+
+She had heard he recovered from fever. Heard Maryam knew what to do. Heard Yeshua saw danger before it arrived. Heard a dozen things, none fully lies, all dangerous.
+
+The child was hot, limp, breathing fast.
+
+Daniel’s body remembered fever immediately.
+
+Maryam took over.
+
+Shade. Cloth. Water if the child could swallow. Loosen wrapping. Ask when it began. Ask whether the child had urinated. Ask who else sick. Ask what had been given. Send for the older woman who knew more. Send for clean water. Keep people back. Stop the grandmother from forcing too much liquid at once. Stop the father from hovering uselessly by giving him work.
+
+Daniel stood frozen.
+
+Mara touched his arm.
+
+Not gently.
+
+Useful.
+
+“Work or move.”
+
+He moved.
+
+He fetched water.
+
+No miracle.
+
+The child lived through the day.
+
+Then the night.
+
+By morning, the fever eased.
+
+Everyone wanted meaning.
+
+Maryam refused to provide it.
+
+“The child needs watching,” she said.
+
+“Yeshua helped,” the mother said.
+
+“He carried water,” Maryam answered.
+
+The mother nodded fervently, which meant she had not heard.
+
+Yeshua said, “Water helped.”
+
+The mother looked at him.
+
+“God helped,” the grandmother said.
+
+Maryam said, “Then do not refuse the water He sent.”
+
+Good.
+
+That sentence traveled.
+
+Badly, of course.
+
+By market day, someone said Yeshua had said water was God. Someone else said Maryam commanded fever. Someone else said if a child drank water from their house, fever would leave. Maryam spent a week correcting that.
+
+Mara proposed labeling jars: Water, not miracle.
+
+Yosef considered it.
+
+Maryam forbade it because the wrong people would make pilgrimage to jars.
+
+Daniel added to the list:
+
+If help works, people may worship the wrong part.
+
+Then:
+
+Labeling can worsen worship.
+
+Mara objected.
+
+“Some labels are good.”
+
+He added:
+
+Good labels require good readers.
+
+She accepted this reluctantly.
+
+---
+
+No miracles, only materials did not mean no wonder.
+
+Daniel had to admit that.
+
+A child fever easing by dawn was wonder even if not miracle. A wall repaired before the next rain. A yoke reshaped so an animal stopped flinching. Grain sorted with enough saved to stretch the week. Maryam’s voice turning panic into tasks. Yosef’s hands finding the part that held. Mara insulting him back into motion. Hanina making hunger count accurately.
+
+Materials were not small.
+
+Hands were not small.
+
+Water was not small.
+
+Rest was not small.
+
+A name called from another room was not small when it brought a frightened child back to himself.
+
+“Yeshua,” Maryam called one evening.
+
+He turned automatically.
+
+She held out bread.
+
+He came.
+
+Mara watched.
+
+“What?”
+
+“You answer faster now.”
+
+“To food?”
+
+“To the name.”
+
+He looked away.
+
+“Maybe.”
+
+“Good.”
 
 “Why?”
 
-Daniel swallowed.
+“If you are going to be called, know which call is home and which is crowd.”
 
-Because the crack is the story, not the cause.
+She was too young to say things like that.
 
-He did not have those words yet.
+She said them anyway.
 
-He pointed to the damp base.
+Daniel added later:
 
-“Wall is thirsty in the wrong place.”
+A name can call home or summon crowd.
 
-Yosef’s mouth moved.
+Not yet public.
 
-The owner blinked.
+Not yet theology.
 
-Then Yosef laughed.
+Just a warning from a girl who stole sanding stones and saw too much.
 
-Not loudly.
-Not mockingly.
-A short, surprised laugh that warmed Daniel’s whole body.
+---
 
-“Yes,” Yosef said.
-“Exactly.”
+At the end of that season, the household had a chest.
 
-They moved the water first.
+It began as a practical storage box for things Daniel kept collecting after repairs: broken strap, bad wedge, cracked jar piece, softened wall material, a piece of moldy grain sealed in cloth until Maryam made him throw it away, a warped peg, a leather scrap from the yoke.
 
-The crack remained.
+Yosef called it the teaching chest.
 
-Of course it did.
+Mara called it the chest of things not to worship.
 
-But for the first time, Daniel felt the difference between fixing what people saw and repairing what made it happen.
+That name won.
 
-On the walk home, he carried a bundle of small pegs.
+Each object had a lesson.
 
-Not because Yosef needed him to.
+The fever cloth was not kept because Maryam said some things should be washed and not preserved. That was a lesson too.
 
-Because Yosef had handed them to him.
+The yoke strap: materials change.
 
-The road was dry enough to hold footprints.
-The sky was clear.
-A bird moved along a wall ahead of them, quick and ordinary.
-Somewhere behind them, water now took a better path.
+The wall piece: covered is not fixed.
 
-Daniel shifted the pegs against his chest.
+The jar shard: care is not cure.
 
-He was still small.
+The wedge: small things carry shamefully large loads.
 
-He was still weak.
+The leather scrap: do not blame bearer before inspecting fit.
 
-He had no miracles.
+The water channel stone: water goes where it can.
 
-He had materials.
+The empty space where fever should have been: no miracle, only materials, and materials include people staying.
 
-He had hands that were learning.
+Daniel looked at the chest one night after everyone slept.
 
-He had people who listened sometimes.
+He touched the lid.
 
-For that day, in that light, it seemed almost enough.
+“Daniel,” he whispered to himself.
+
+Old name.
+
+Old world.
+
+Old knowledge.
+
+Then, softer, “Yeshua.”
+
+The name here.
+
+The body here.
+
+The work here.
+
+No Jesus yet. Not spoken. Not fully faced. Only fragments waiting outside the lamplight.
+
+He closed the chest.
+
+Behind him, Maryam said from the doorway, “Both names need sleep.”
+
+He startled.
+
+“How long—”
+
+“Long enough.”
+
+Everyone in this house had terrible habits.
+
+She came and stood beside him.
+
+“You think if no miracle, then less danger?”
+
+He considered lying.
+
+“No.”
+
+“Good.”
+
+“I hoped.”
+
+“I know.”
+
+She touched the chest.
+
+“No miracles does not mean no story.”
+
+“I know.”
+
+“Do you?”
+
+“No.”
+
+She smiled sadly.
+
+“Sleep.”
+
+He did.
+
+For once.
