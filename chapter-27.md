@@ -246,7 +246,7 @@ Mara said, "No."
 "No.
 I know the marks.
 I know shore crowd foolishness.
-I know Daniel's face.
+I know Yeshua's face.
 I am useful."
 
 Rain filled the silence.
@@ -263,7 +263,7 @@ Instead, she pointed at Mara.
 
 "Agreed."
 
-"You do not follow Daniel if he becomes story-stupid."
+"You do not follow Yeshua if he becomes story-stupid."
 
 "I strike him first."
 
@@ -1226,19 +1226,19 @@ Naturally.
 
 By midday, it had already grown legs.
 
-One version: Daniel had gone into the storm and pulled the boat by hand.
+One version: Yeshua had gone into the storm and pulled the boat by hand.
 
 False.
 
-Another: Daniel had sunk and risen because water would not keep him.
+Another: Yeshua had sunk and risen because water would not keep him.
 
 Very false and horrifying.
 
-Another: Daniel walked where men sank.
+Another: Yeshua walked where men sank.
 
 Absolutely not.
 
-Another: Daniel told the wind to stop, and the storm weakened.
+Another: Yeshua told the wind to stop, and the storm weakened.
 
 No.
 
@@ -1264,7 +1264,7 @@ Dalia corrected the stories with ruthless specificity.
 
 "Storm ended when storms end."
 
-"Daniel went under because feet are not theology."
+"Yeshua went under because feet are not theology."
 
 That last line traveled.
 
@@ -1583,7 +1583,7 @@ Dalia stared.
 
 He sighed.
 
-"Daniel brought longer rope."
+"Yeshua brought longer rope."
 
 Acceptable.
 

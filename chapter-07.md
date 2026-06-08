@@ -2,7 +2,8 @@
 
 Yosef’s workshop was not a room.
 
-This annoyed Daniel because rooms had boundaries and boundaries made thinking easier. The workshop began in the covered space beside the house, continued under the awning, spilled into the courtyard when light was good, followed Yosef to clients’ homes, appeared on roadsides when carts failed, and occasionally invaded the eating area until Maryam said his name in a tone that returned tools to their proper moral category.
+This annoyed Daniel because rooms had boundaries and boundaries made thinking easier.
+The workshop began in the covered space beside the house, continued under the awning, spilled into the courtyard when light was good, followed Yosef to clients’ homes, appeared on roadsides when carts failed, and occasionally invaded the eating area until Maryam said his name in a tone that returned tools to their proper moral category.
 
 “Yosef.”
 
@@ -16,25 +17,41 @@ Smaller tools moved.
 
 Stolen tools reappeared, usually from impossible places.
 
-The workshop was not where work happened. It was the pattern by which Yosef met broken things.
+The workshop was not where work happened.
+It was the pattern by which Yosef met broken things.
 
 This took Daniel years to understand.
 
-He had expected a shop because old Daniel came from a world where workspaces were defined by leases, permits, insurance, storage systems, and the number of outlets that never quite sufficed. Yosef had pegs, racks, bundles, chests, hooks, portable rolls, habits, debts, favors, and memory. His shop existed wherever he could create enough order for a tool to be found twice.
+He had expected a shop because old Daniel came from a world where workspaces were defined by leases, permits, insurance, storage systems, and the number of outlets that never quite sufficed.
+Yosef had pegs, racks, bundles, chests, hooks, portable rolls, habits, debts, favors, and memory.
+His shop existed wherever he could create enough order for a tool to be found twice.
 
 That was harder.
 
 It was also more honest.
 
-Yosef knew every tool by touch. Not sentimentally. Practically. A handle worn smooth meant use. A loosened head meant danger. A blade sharpened too eagerly meant someone had been angry. A cord coiled badly meant future delay. Tools did not merely exist; they carried the moral history of the people who handled them.
+Yosef knew every tool by touch.
+Not sentimentally.
+Practically.
+A handle worn smooth meant use.
+A loosened head meant danger.
+A blade sharpened too eagerly meant someone had been angry.
+A cord coiled badly meant future delay.
+Tools did not merely exist; they carried the moral history of the people who handled them.
 
-“Yeshua,” Yosef said one morning, holding out a chisel. “What do you see?”
+“Yeshua,” Yosef said one morning, holding out a chisel.
+“What do you see?”
 
 Daniel took it carefully.
 
-He was old enough now to be trusted with real tools under watch and young enough to resent the watch. The chisel handle had a crack near the end, not deep but lengthening. The edge was serviceable. The ferrule had shifted slightly.
+He was old enough now to be trusted with real tools under watch and young enough to resent the watch.
+The chisel handle had a crack near the end, not deep but lengthening.
+The edge was serviceable.
+The ferrule had shifted slightly.
 
-“Handle crack. Edge okay. Metal loose soon.”
+“Handle crack.
+Edge okay.
+Metal loose soon.”
 
 Yosef nodded.
 
@@ -72,7 +89,9 @@ Maryam, passing with a basket, said, “Both.”
 
 That ended it.
 
-They repaired the handle, not because a cracked chisel handle was dramatic, but because small failures in tools became injuries in hands. Daniel knew this. Yeshua learned it bodily.
+They repaired the handle, not because a cracked chisel handle was dramatic, but because small failures in tools became injuries in hands.
+Daniel knew this.
+Yeshua learned it bodily.
 
 Yosef made him write no list.
 
@@ -158,15 +177,28 @@ People came to Yosef because he made things hold.
 
 This was not the same as making things new.
 
-Most clients did not have money for new. Many did not have money for repaired properly. Some had pride instead of money, which was less useful but more common. Yosef knew when to accept grain, labor, future favors, or nothing. Maryam often knew better.
+Most clients did not have money for new.
+Many did not have money for repaired properly.
+Some had pride instead of money, which was less useful but more common.
+Yosef knew when to accept grain, labor, future favors, or nothing.
+Maryam often knew better.
 
 A door came one week.
 
-Not literally. Its owner came first, complaining that the door had become stubborn. The door itself was attached to a house whose threshold had shifted and whose owner believed doors possessed personality.
+Not literally.
+Its owner came first, complaining that the door had become stubborn.
+The door itself was attached to a house whose threshold had shifted and whose owner believed doors possessed personality.
 
-Yosef went. Daniel came. Mara appeared because the path passed near something climbable and she considered that invitation.
+Yosef went.
+Daniel came.
+Mara appeared because the path passed near something climbable and she considered that invitation.
 
-The door scraped at the lower edge. The owner had planed the bottom twice. The gap at top was now too large, which let dust and wind in. The hinge post had softened near the base from water. The door was not stubborn. The building was settling badly and the owner had been shaving the symptom.
+The door scraped at the lower edge.
+The owner had planed the bottom twice.
+The gap at top was now too large, which let dust and wind in.
+The hinge post had softened near the base from water.
+The door was not stubborn.
+The building was settling badly and the owner had been shaving the symptom.
 
 Yosef looked.
 
@@ -190,7 +222,9 @@ This was unhelpful.
 
 Maryam was not there to soften.
 
-Yosef drew the load line in dust. Door weight, hinge, post, damp base, drag. The owner frowned because the explanation cost more than blame.
+Yosef drew the load line in dust.
+Door weight, hinge, post, damp base, drag.
+The owner frowned because the explanation cost more than blame.
 
 “What if shave again?”
 
@@ -198,13 +232,18 @@ Yosef looked at Daniel.
 
 Daniel looked at the door.
 
-“Then door smaller. Problem same.”
+“Then door smaller.
+Problem same.”
 
-Mara added, “Eventually no door. Excellent airflow.”
+Mara added, “Eventually no door.
+Excellent airflow.”
 
 The owner did not appreciate this.
 
-Still, the post was repaired. Not fully replaced; reinforced, lifted, dried, shielded better at base. The door opened. The owner praised Yosef, ignored Daniel, and glared at Mara.
+Still, the post was repaired.
+Not fully replaced; reinforced, lifted, dried, shielded better at base.
+The door opened.
+The owner praised Yosef, ignored Daniel, and glared at Mara.
 
 On the way home, Daniel said, “People like wrong problem if cheaper.”
 
@@ -224,9 +263,11 @@ Maryam’s workshop was quieter and more dangerous.
 
 Daniel recognized it late.
 
-Her tools did not hang on pegs. They moved through hands, bowls, seating, pauses, stories, and the moment when she decided someone needed food before truth.
+Her tools did not hang on pegs.
+They moved through hands, bowls, seating, pauses, stories, and the moment when she decided someone needed food before truth.
 
-One afternoon, while Yosef and Yeshua repaired a storage shelf, Maryam managed a dispute in the courtyard between two women over a borrowed grinding stone. Daniel heard fragments.
+One afternoon, while Yosef and Yeshua repaired a storage shelf, Maryam managed a dispute in the courtyard between two women over a borrowed grinding stone.
+Daniel heard fragments.
 
 “You said after new moon.”
 
@@ -246,13 +287,18 @@ Daniel looked up.
 
 Maryam was already moving.
 
-She did not begin with fairness. This surprised him until it stopped surprising him.
+She did not begin with fairness.
+This surprised him until it stopped surprising him.
 
 She began with water.
 
 Then with seating.
 
-Then with the sick child, because accusation had gone there and left a wound. Then with the stone. Then with who had carried extra grinding while the stone was gone. Then with what debt had actually formed. By the end, one woman had agreed to return the stone sooner, the other to send a daughter to help grind for a morning, and both had eaten enough bread that the agreement might survive until sunset.
+Then with the sick child, because accusation had gone there and left a wound.
+Then with the stone.
+Then with who had carried extra grinding while the stone was gone.
+Then with what debt had actually formed.
+By the end, one woman had agreed to return the stone sooner, the other to send a daughter to help grind for a morning, and both had eaten enough bread that the agreement might survive until sunset.
 
 Daniel whispered, “How did she know?”
 
@@ -264,7 +310,8 @@ Yosef did not look up.
 
 “With water.”
 
-“No. After.”
+“No.
+After.”
 
 Yosef smiled faintly.
 
@@ -276,7 +323,8 @@ He had thought of her work as kindness.
 
 That was too small.
 
-Kindness was a material. She used it with skill.
+Kindness was a material.
+She used it with skill.
 
 ---
 
@@ -284,7 +332,10 @@ Yeshua became useful enough to be sent on small errands.
 
 This was a promotion and a trap.
 
-He could fetch a tool from the bench without bringing the wrong one more than half the time. He could carry messages if they were short, concrete, and not entrusted to him while Mara was nearby. He could deliver a repaired object and repeat one instruction with sufficient accuracy if bribed with bread. He could observe a problem and return with a description that mixed useful detail with excessive judgment.
+He could fetch a tool from the bench without bringing the wrong one more than half the time.
+He could carry messages if they were short, concrete, and not entrusted to him while Mara was nearby.
+He could deliver a repaired object and repeat one instruction with sufficient accuracy if bribed with bread.
+He could observe a problem and return with a description that mixed useful detail with excessive judgment.
 
 “Tell Yosef the shelf leans,” Maryam would say.
 
@@ -306,7 +357,9 @@ Yosef discouraged unnecessary bleeding.
 
 Maryam taught timing.
 
-Between them, Daniel began to learn that truth had edges and handles. A blade without handle injured the person carrying it. A handle without blade comforted and cut nothing.
+Between them, Daniel began to learn that truth had edges and handles.
+A blade without handle injured the person carrying it.
+A handle without blade comforted and cut nothing.
 
 Mara stole this metaphor later and used it badly.
 
@@ -366,7 +419,12 @@ Mara lowered her hand.
 
 Good answer.
 
-The chest of things not to worship became a local joke before it became a local institution. People brought objects for the chest after a repair if the lesson had injured enough pride to become useful. Yosef accepted some. Maryam rejected others because not every failure deserved display. Daniel learned that teaching from someone else’s mistake required permission or mercy. Preferably both.
+The chest of things not to worship became a local joke before it became a local institution.
+People brought objects for the chest after a repair if the lesson had injured enough pride to become useful.
+Yosef accepted some.
+Maryam rejected others because not every failure deserved display.
+Daniel learned that teaching from someone else’s mistake required permission or mercy.
+Preferably both.
 
 Mara added a small carved goat to the chest without permission.
 
@@ -378,7 +436,10 @@ This remained disputed.
 
 The first time someone called Yeshua “little master” was the first time Maryam banned a phrase.
 
-It happened after a cart repair. The axle pin had worn unevenly. Daniel saw the pattern, explained badly, and Yosef made the fix. The cart owner, delighted to spend less than expected, clapped Yeshua on the shoulder.
+It happened after a cart repair.
+The axle pin had worn unevenly.
+Daniel saw the pattern, explained badly, and Yosef made the fix.
+The cart owner, delighted to spend less than expected, clapped Yeshua on the shoulder.
 
 “Little master sees everything.”
 
@@ -396,7 +457,9 @@ Yeshua wished to disappear into sawdust.
 
 Maryam set down the water.
 
-“He is a child learning work. Praise the work if it helped. Do not make the child into a charm.”
+“He is a child learning work.
+Praise the work if it helped.
+Do not make the child into a charm.”
 
 The man flushed.
 
@@ -450,7 +513,16 @@ One evening, after a long day repairing a chest for a family who could not decid
 
 This was trust.
 
-Not because cleaning was hard, though doing it well required attention, but because tools in a child’s hands became stories quickly. Daniel cleaned slowly. Blade away from fingers. Cloth dry where needed. Oil sparingly. Handles checked. Cord recoiled. Pegs returned. Chisels sorted by size. Hammer placed where Yosef’s hand would seek it before his eyes did.
+Not because cleaning was hard, though doing it well required attention, but because tools in a child’s hands became stories quickly.
+Daniel cleaned slowly.
+Blade away from fingers.
+Cloth dry where needed.
+Oil sparingly.
+Handles checked.
+Cord recoiled.
+Pegs returned.
+Chisels sorted by size.
+Hammer placed where Yosef’s hand would seek it before his eyes did.
 
 Yosef watched.
 
@@ -460,7 +532,8 @@ Daniel glowed.
 
 Unfortunately.
 
-Mara saw and said, “Careful. He will become shiny.”
+Mara saw and said, “Careful.
+He will become shiny.”
 
 “Already?” Maryam asked.
 
@@ -500,13 +573,19 @@ She shrugged.
 
 It did.
 
-That was the problem with Mara. Her nonsense kept becoming accurate.
+That was the problem with Mara.
+Her nonsense kept becoming accurate.
 
 ---
 
 The workshop also taught waiting.
 
-Wood did not care about impatience. Glue—what little they used, where used—needed time. Wet material needed drying. A warped piece could sometimes be persuaded slowly and sometimes not at all. A repair made too fast because rain threatened might fail by next rain. A repair delayed too long because conditions were imperfect might let greater damage enter.
+Wood did not care about impatience.
+Glue—what little they used, where used—needed time.
+Wet material needed drying.
+A warped piece could sometimes be persuaded slowly and sometimes not at all.
+A repair made too fast because rain threatened might fail by next rain.
+A repair delayed too long because conditions were imperfect might let greater damage enter.
 
 Waiting was not inaction.
 
@@ -560,7 +639,11 @@ Not even a stable place.
 
 A place.
 
-A low stool near the side bench. A small roll of practice cord. A sanding stone clearly marked after Mara’s thefts became too efficient. A few scrap pieces he could use without asking if work was done and Maryam did not need him elsewhere. A shelf section for teaching objects in progress.
+A low stool near the side bench.
+A small roll of practice cord.
+A sanding stone clearly marked after Mara’s thefts became too efficient.
+A few scrap pieces he could use without asking if work was done and Maryam did not need him elsewhere.
+A shelf section for teaching objects in progress.
 
 The old Daniel would have found it insulting.
 
@@ -598,7 +681,8 @@ Mara, sitting on the wall with one of his scraps, said, “The workshop releases
 
 “It does not own me.”
 
-“Good. Then you will not mind that I improved this.”
+“Good.
+Then you will not mind that I improved this.”
 
 He saw the scrap.
 

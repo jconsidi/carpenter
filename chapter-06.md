@@ -2,11 +2,14 @@
 
 The fever taught him spite.
 
-Not spiritual spite. Bodily spite. The kind that rises when a person discovers that knowing many things about hydration, infection, inflammation, and public health does not give him access to antibiotics, sterile saline, thermometers, acetaminophen, or the ability to sit upright without vomiting.
+Not spiritual spite.
+Bodily spite.
+The kind that rises when a person discovers that knowing many things about hydration, infection, inflammation, and public health does not give him access to antibiotics, sterile saline, thermometers, acetaminophen, or the ability to sit upright without vomiting.
 
 Yeshua was eight.
 
-Daniel had been older than that when he died, which made the fever feel like theft twice over: first of health, then of dignity. He lay on a mat under a thin cloth, sweating through one hour and shivering through the next, while Maryam wiped his face and Yosef sat near the doorway pretending not to look afraid.
+Daniel had been older than that when he died, which made the fever feel like theft twice over: first of health, then of dignity.
+He lay on a mat under a thin cloth, sweating through one hour and shivering through the next, while Maryam wiped his face and Yosef sat near the doorway pretending not to look afraid.
 
 Mara came once, was told to stay away, and shouted from outside, “If he dies, tell him I still have his good stone.”
 
@@ -18,7 +21,17 @@ Daniel would have laughed if his bones had not been busy becoming sand.
 
 The fever filled the room.
 
-It shrank everything. The roof became too far away. The doorway too bright. Voices came through water. Maryam’s hand on his forehead was the only measurement that mattered, though the old Daniel wanted numbers. Degrees. Trends. Pulse. Intake. Output. Anything with units.
+It shrank everything.
+The roof became too far away.
+The doorway too bright.
+Voices came through water.
+Maryam’s hand on his forehead was the only measurement that mattered, though the old Daniel wanted numbers.
+Degrees.
+Trends.
+Pulse.
+Intake.
+Output.
+Anything with units.
 
 He had none.
 
@@ -56,13 +69,25 @@ The phrase existed in his head like a tool behind glass.
 
 Instead he whispered, “Cool.”
 
-Maryam adjusted cloth. Yosef opened the door enough for air but not enough for glare. Someone brought water from a cooler jar. Someone else argued about whether the child should be covered more. Maryam listened and ignored half.
+Maryam adjusted cloth.
+Yosef opened the door enough for air but not enough for glare.
+Someone brought water from a cooler jar.
+Someone else argued about whether the child should be covered more.
+Maryam listened and ignored half.
 
 No miracle came.
 
 This was important.
 
-No light entered. No voice spoke. No power moved through his hands. He did not command fever away. He did not discover that being Yeshua meant the body obeyed him better than other bodies did. His joints ached. His throat burned. His stomach rejected offerings. His head filled with broken songs from the old world and Maryam’s voice from this one.
+No light entered.
+No voice spoke.
+No power moved through his hands.
+He did not command fever away.
+He did not discover that being Yeshua meant the body obeyed him better than other bodies did.
+His joints ached.
+His throat burned.
+His stomach rejected offerings.
+His head filled with broken songs from the old world and Maryam’s voice from this one.
 
 At the worst of it, he thought: If I am who I fear, this is a stupid way to prove otherwise.
 
@@ -84,7 +109,8 @@ He shook his head.
 
 Maryam touched his hair.
 
-“Yeshua, then. Drink later.”
+“Yeshua, then.
+Drink later.”
 
 He slept.
 
@@ -92,7 +118,9 @@ The fever broke near dawn two days after it began.
 
 No one announced a sign.
 
-Maryam cried in the storage corner where she thought he could not hear. Yosef went outside and repaired a hinge that did not need repair until the hinge confessed under stress. Mara arrived with the stolen sanding stone and set it near his mat.
+Maryam cried in the storage corner where she thought he could not hear.
+Yosef went outside and repaired a hinge that did not need repair until the hinge confessed under stress.
+Mara arrived with the stolen sanding stone and set it near his mat.
 
 “I kept it alive,” she said.
 
@@ -124,9 +152,16 @@ Enough was mercy.
 
 After the fever, people became worse.
 
-Not everyone. Not always. But enough.
+Not everyone.
+Not always.
+But enough.
 
-A child recovering from illness attracts interpretation the way damp attracts mold. Someone said Maryam’s prayers had been favored. Someone said Yosef’s household was protected. Someone said Yeshua had fought death and won, which was offensively dramatic for a boy whose chief contribution had been vomiting. Someone said children with old eyes sometimes carried strange blessing. Someone else said fever leaving a child proved the fever had been sent as test.
+A child recovering from illness attracts interpretation the way damp attracts mold.
+Someone said Maryam’s prayers had been favored.
+Someone said Yosef’s household was protected.
+Someone said Yeshua had fought death and won, which was offensively dramatic for a boy whose chief contribution had been vomiting.
+Someone said children with old eyes sometimes carried strange blessing.
+Someone else said fever leaving a child proved the fever had been sent as test.
 
 Maryam shut that last one down so hard the neighbor apologized twice and brought lentils.
 
@@ -204,7 +239,11 @@ He remembered.
 
 Weakness lasted longer than Daniel approved.
 
-The body did not respect deadlines. It improved, then punished enthusiasm. He tried to stand too long and nearly fainted. He tried to carry a small water jar and spilled half. He tried to return to Yosef’s bench and discovered that arms which had done nothing for days had become decorative.
+The body did not respect deadlines.
+It improved, then punished enthusiasm.
+He tried to stand too long and nearly fainted.
+He tried to carry a small water jar and spilled half.
+He tried to return to Yosef’s bench and discovered that arms which had done nothing for days had become decorative.
 
 Mara watched him fail to lift a board he had carried before.
 
@@ -240,7 +279,8 @@ Mara picked up the board and carried it badly but successfully.
 
 “Temporary.”
 
-“All strength is temporary. That is why insults must be prompt.”
+“All strength is temporary.
+That is why insults must be prompt.”
 
 He did not have a response.
 
@@ -272,7 +312,8 @@ She nodded.
 
 “I am already unbearable.”
 
-“Yes. Imagine more.”
+“Yes.
+Imagine more.”
 
 He laughed and coughed.
 
@@ -288,9 +329,14 @@ He rested.
 
 The next repair came too soon and therefore properly.
 
-A neighbor brought a yoke with a familiar complaint: the animal resisted, the work suffered, the tool had held before, and surely the beast was stubborn. Yeshua, still pale from fever, sat near the doorway while Yosef inspected.
+A neighbor brought a yoke with a familiar complaint: the animal resisted, the work suffered, the tool had held before, and surely the beast was stubborn.
+Yeshua, still pale from fever, sat near the doorway while Yosef inspected.
 
-The yoke was not as bad as the one from years earlier, but the strap had hardened and rubbed. The wood had warped slightly. One side sat lower. It would not kill the animal. It would only make work painful enough that every day became accusation.
+The yoke was not as bad as the one from years earlier, but the strap had hardened and rubbed.
+The wood had warped slightly.
+One side sat lower.
+It would not kill the animal.
+It would only make work painful enough that every day became accusation.
 
 Daniel saw the sore before the owner mentioned it.
 
@@ -320,7 +366,10 @@ The owner understood that.
 
 Progress.
 
-Yosef adjusted the yoke, softened and replaced the strap, reshaped the shallow curve. Yeshua wanted to help but was too weak to be useful. This made him angry. Yosef gave him a small piece of leather to hold anyway.
+Yosef adjusted the yoke, softened and replaced the strap, reshaped the shallow curve.
+Yeshua wanted to help but was too weak to be useful.
+This made him angry.
+Yosef gave him a small piece of leather to hold anyway.
 
 “What do you see?” Yosef asked.
 
@@ -332,7 +381,8 @@ Yosef adjusted the yoke, softened and replaced the strap, reshaped the shallow c
 
 “What else?”
 
-“Was good. Now bad.”
+“Was good.
+Now bad.”
 
 Yosef nodded.
 
@@ -342,7 +392,13 @@ Daniel knew this.
 
 Yeshua learned it again.
 
-A strap that had once fit could become harm. A practice that had once protected could become pressure. A refusal that had once saved could become evasion. A name that had once called home could become crowd. Not yet. Later. But the yoke began teaching before the lesson had language.
+A strap that had once fit could become harm.
+A practice that had once protected could become pressure.
+A refusal that had once saved could become evasion.
+A name that had once called home could become crowd.
+Not yet.
+Later.
+But the yoke began teaching before the lesson had language.
 
 Maryam cleaned the sore.
 
@@ -368,7 +424,8 @@ Maryam turned.
 
 He touched the water bowl, the strap, the place where the animal had stood.
 
-“Care helps. Sore still sore.”
+“Care helps.
+Sore still sore.”
 
 Maryam nodded slowly.
 
@@ -388,7 +445,8 @@ Mara dropped from the wall.
 
 “I do not write lists.”
 
-“You should. Your head leaks.”
+“You should.
+Your head leaks.”
 
 It did.
 
@@ -396,7 +454,10 @@ It did.
 
 The storage wall failed in rain.
 
-Not collapsed. Failed more politely. Water entered through the top edge where an old patch had cracked behind stacked baskets. The leak had been slow enough to hide and steady enough to spoil a sack of grain along one side.
+Not collapsed.
+Failed more politely.
+Water entered through the top edge where an old patch had cracked behind stacked baskets.
+The leak had been slow enough to hide and steady enough to spoil a sack of grain along one side.
 
 Maryam found it first.
 
@@ -412,9 +473,15 @@ Mara came because silence had weight.
 
 The grain smelled wrong.
 
-Not all of it. Enough.
+Not all of it.
+Enough.
 
-Hanina, summoned because grain and grief often needed onion government, sorted with Maryam. Good portion. Doubtful portion. Ruined portion. The categories were painful. Poverty made doubt larger and ruin harder to admit.
+Hanina, summoned because grain and grief often needed onion government, sorted with Maryam.
+Good portion.
+Doubtful portion.
+Ruined portion.
+The categories were painful.
+Poverty made doubt larger and ruin harder to admit.
 
 Yeshua looked at the wall.
 
@@ -424,7 +491,8 @@ Yosef nodded.
 
 “Water down behind.”
 
-The old Daniel wanted waterproof membranes, flashing, sealant, better drainage, overhangs, standardized materials, money. Yeshua had clay, reed, labor, weather, and a household that could not afford to learn too slowly.
+The old Daniel wanted waterproof membranes, flashing, sealant, better drainage, overhangs, standardized materials, money.
+Yeshua had clay, reed, labor, weather, and a household that could not afford to learn too slowly.
 
 They opened the wall patch.
 
@@ -440,7 +508,18 @@ Maryam held the spoiled grain.
 
 They worked all day.
 
-Not because the wall was grand. Because every repair touched ten others. Move baskets. Sort grain. Dry what could be saved. Scrape bad material. Patch. Improve the top edge. Create a channel. Rearrange storage so the most vulnerable goods were not placed where hidden failure would reach first. Decide what to eat sooner. Decide what to mourn.
+Not because the wall was grand.
+Because every repair touched ten others.
+Move baskets.
+Sort grain.
+Dry what could be saved.
+Scrape bad material.
+Patch.
+Improve the top edge.
+Create a channel.
+Rearrange storage so the most vulnerable goods were not placed where hidden failure would reach first.
+Decide what to eat sooner.
+Decide what to mourn.
 
 No miracle turned spoiled grain sweet.
 
@@ -516,7 +595,10 @@ A woman came two days later asking for help with a feverish child.
 
 This was the first time Daniel understood how danger found openings in compassion.
 
-She had heard he recovered from fever. Heard Maryam knew what to do. Heard Yeshua saw danger before it arrived. Heard a dozen things, none fully lies, all dangerous.
+She had heard he recovered from fever.
+Heard Maryam knew what to do.
+Heard Yeshua saw danger before it arrived.
+Heard a dozen things, none fully lies, all dangerous.
 
 The child was hot, limp, breathing fast.
 
@@ -524,7 +606,19 @@ Daniel’s body remembered fever immediately.
 
 Maryam took over.
 
-Shade. Cloth. Water if the child could swallow. Loosen wrapping. Ask when it began. Ask whether the child had urinated. Ask who else sick. Ask what had been given. Send for the older woman who knew more. Send for clean water. Keep people back. Stop the grandmother from forcing too much liquid at once. Stop the father from hovering uselessly by giving him work.
+Shade.
+Cloth.
+Water if the child could swallow.
+Loosen wrapping.
+Ask when it began.
+Ask whether the child had urinated.
+Ask who else sick.
+Ask what had been given.
+Send for the older woman who knew more.
+Send for clean water.
+Keep people back.
+Stop the grandmother from forcing too much liquid at once.
+Stop the father from hovering uselessly by giving him work.
 
 Daniel stood frozen.
 
@@ -574,7 +668,10 @@ That sentence traveled.
 
 Badly, of course.
 
-By market day, someone said Yeshua had said water was God. Someone else said Maryam commanded fever. Someone else said if a child drank water from their house, fever would leave. Maryam spent a week correcting that.
+By market day, someone said Yeshua had said water was God.
+Someone else said Maryam commanded fever.
+Someone else said if a child drank water from their house, fever would leave.
+Maryam spent a week correcting that.
 
 Mara proposed labeling jars: Water, not miracle.
 
@@ -606,7 +703,14 @@ No miracles, only materials did not mean no wonder.
 
 Daniel had to admit that.
 
-A child fever easing by dawn was wonder even if not miracle. A wall repaired before the next rain. A yoke reshaped so an animal stopped flinching. Grain sorted with enough saved to stretch the week. Maryam’s voice turning panic into tasks. Yosef’s hands finding the part that held. Mara insulting him back into motion. Hanina making hunger count accurately.
+A child fever easing by dawn was wonder even if not miracle.
+A wall repaired before the next rain.
+A yoke reshaped so an animal stopped flinching.
+Grain sorted with enough saved to stretch the week.
+Maryam’s voice turning panic into tasks.
+Yosef’s hands finding the part that held.
+Mara insulting him back into motion.
+Hanina making hunger count accurately.
 
 Materials were not small.
 
@@ -674,7 +778,8 @@ That name won.
 
 Each object had a lesson.
 
-The fever cloth was not kept because Maryam said some things should be washed and not preserved. That was a lesson too.
+The fever cloth was not kept because Maryam said some things should be washed and not preserved.
+That was a lesson too.
 
 The yoke strap: materials change.
 
@@ -710,7 +815,10 @@ The body here.
 
 The work here.
 
-No Jesus yet. Not spoken. Not fully faced. Only fragments waiting outside the lamplight.
+No Jesus yet.
+Not spoken.
+Not fully faced.
+Only fragments waiting outside the lamplight.
 
 He closed the chest.
 

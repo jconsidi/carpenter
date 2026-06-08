@@ -2083,7 +2083,7 @@ Others returned and used water as a shield until Maryam or Yosef or someone else
 
 Daniel remained Daniel.
 
-Also the new name.
+Also Yeshua.
 
 Also the boy who had gone to the river and come back with no sky story worth telling, which turned out to be one of the better protections available.
 

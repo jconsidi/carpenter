@@ -789,17 +789,16 @@ The world narrowed.
 
 Daniel heard the question as if from a distance.
 
-His name.
+Not because the answer was hidden.
+It was not.
+Maryam called it across rooms.
+Yosef used it at the bench.
+Mara used it when his face became too solemn.
+Children in the village used it without fear.
 
-Not Daniel.
+Because here, among teachers and stone and old fragments with sharper edges, the ordinary name touched the story harder.
 
-The other one.
-
-The one Maryam had said over him in the first room.
-The one he had learned slowly, resisted, answered to, feared, kept.
-The one he avoided thinking beside certain fragments.
-
-He said it.
+“Yeshua,” he said.
 
 Quietly.
 
@@ -1915,7 +1914,7 @@ In the dark, he whispered his old name once.
 
 Daniel.
 
-Then his new one.
+Then Yeshua.
 
 Both answered.
 

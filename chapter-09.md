@@ -2,13 +2,24 @@
 
 The first repair that felt like his was a box.
 
-Not the first repair he touched. He had touched many by then: pegs, straps, wedges, handles, stool legs, door edges, yokes, baskets, and once, disastrously, a clay patch he should not have touched at all. But those belonged to Yosef, Maryam, or the household. He helped. He commented. He made mistakes. He was corrected.
+Not the first repair he touched.
+He had touched many by then: pegs, straps, wedges, handles, stool legs, door edges, yokes, baskets, and once, disastrously, a clay patch he should not have touched at all.
+But those belonged to Yosef, Maryam, or the household.
+He helped.
+He commented.
+He made mistakes.
+He was corrected.
 
 The box came to him.
 
 This was dangerous.
 
-It belonged to a boy named Lavi, who had a serious face, permanently dirty knees, and the air of someone who had been told to be careful so often that care had become fear. He carried the box with both hands. The lid hung crooked. One corner had split. A small leather hinge had torn. Inside were stones, string, a bone bead, and something wrapped in cloth that Lavi did not show.
+It belonged to a boy named Lavi, who had a serious face, permanently dirty knees, and the air of someone who had been told to be careful so often that care had become fear.
+He carried the box with both hands.
+The lid hung crooked.
+One corner had split.
+A small leather hinge had torn.
+Inside were stones, string, a bone bead, and something wrapped in cloth that Lavi did not show.
 
 He stood in the courtyard while Maryam sorted greens and Yosef shaped a peg.
 
@@ -28,7 +39,16 @@ Maryam looked at Lavi.
 
 Daniel looked at the box.
 
-Good wood for a small thing. Not precious. Used. Dropped likely. The corner had split along grain. The lid was salvageable. The hinge needed replacing. Repair possible. But the box held more than stones. Any box carried privacy by definition, and children’s privacy was often treated as practice for adult theft.
+Good wood for a small thing.
+Not precious.
+Used.
+Dropped likely.
+The corner had split along grain.
+The lid was salvageable.
+The hinge needed replacing.
+Repair possible.
+But the box held more than stones.
+Any box carried privacy by definition, and children’s privacy was often treated as practice for adult theft.
 
 Daniel asked, “May I look?”
 
@@ -82,7 +102,14 @@ Lavi nodded.
 
 “Then fix.”
 
-Yosef handed Daniel tools appropriate for a child under supervision. Small awl. Cord. Thin sliver of wood. Soft leather scrap. Sanding stone. He did not take over. This terrified Daniel more than if he had.
+Yosef handed Daniel tools appropriate for a child under supervision.
+Small awl.
+Cord.
+Thin sliver of wood.
+Soft leather scrap.
+Sanding stone.
+He did not take over.
+This terrified Daniel more than if he had.
 
 Mara climbed down and sat nearby.
 
@@ -96,7 +123,9 @@ Maryam said, “Quiet witness.”
 
 Mara made a face but obeyed for almost a full minute.
 
-The repair took all afternoon because Daniel kept stopping to check whether he was forcing the box to become his idea of repaired rather than Lavi’s. He pinned the split with a tiny sliver and cord wrap, replaced the hinge with soft leather, trimmed the lid edge just enough, and left the scar visible. He almost sanded it smooth, then stopped.
+The repair took all afternoon because Daniel kept stopping to check whether he was forcing the box to become his idea of repaired rather than Lavi’s.
+He pinned the split with a tiny sliver and cord wrap, replaced the hinge with soft leather, trimmed the lid edge just enough, and left the scar visible.
+He almost sanded it smooth, then stopped.
 
 “What?” Yosef asked.
 
@@ -146,7 +175,11 @@ Mara noticed.
 
 “Then why face?”
 
-Because he had touched something that mattered to someone else and not ruined it. Because the box still looked like itself. Because repair did not erase harm. Because ownership had been preserved. Because a child had trusted him and gone away less afraid.
+Because he had touched something that mattered to someone else and not ruined it.
+Because the box still looked like itself.
+Because repair did not erase harm.
+Because ownership had been preserved.
+Because a child had trusted him and gone away less afraid.
 
 He said, “It can keep being box.”
 
@@ -218,7 +251,9 @@ Denied.
 
 Daniel learned that children often knew exactly what mattered if adults asked well.
 
-The spinning top did not need to spin perfectly; it needed to spin “like before,” which meant with a wobble because the owner’s dead grandfather had made it and apparently the wobble was family. The wooden animal did not need to resemble any known animal; it needed to stand. The bead string needed the blue bead near the middle, not because of color balance but because the blue bead was “the brave one.”
+The spinning top did not need to spin perfectly; it needed to spin “like before,” which meant with a wobble because the owner’s dead grandfather had made it and apparently the wobble was family.
+The wooden animal did not need to resemble any known animal; it needed to stand.
+The bead string needed the blue bead near the middle, not because of color balance but because the blue bead was “the brave one.”
 
 Repair required theology of blue beads.
 
@@ -228,7 +263,12 @@ Daniel accepted this slowly.
 
 The roof patch was his first public mistake after the box.
 
-It belonged to a family near the lower path. A small leak over a storage shelf. Simple, or simple-looking, which was often how trouble disguised itself. Yosef was helping elsewhere. Maryam was with a sick neighbor. The family asked whether Yeshua could look, not fix, only look.
+It belonged to a family near the lower path.
+A small leak over a storage shelf.
+Simple, or simple-looking, which was often how trouble disguised itself.
+Yosef was helping elsewhere.
+Maryam was with a sick neighbor.
+The family asked whether Yeshua could look, not fix, only look.
 
 Look became touch.
 
@@ -236,13 +276,15 @@ Touch became suggestion.
 
 Suggestion became “he said.”
 
-By the time Yosef arrived, Daniel had proposed a patch that redirected water away from the visible leak but toward a weaker corner he had not inspected. Yosef saw it immediately.
+By the time Yosef arrived, Daniel had proposed a patch that redirected water away from the visible leak but toward a weaker corner he had not inspected.
+Yosef saw it immediately.
 
 “No.”
 
 Daniel felt the word before understanding the whole reason.
 
-Yosef climbed up, examined, and showed him the slope. The patch would solve one drip and create another hidden path.
+Yosef climbed up, examined, and showed him the slope.
+The patch would solve one drip and create another hidden path.
 
 The family watched.
 
@@ -260,9 +302,13 @@ Yosef made him explain the wrongness.
 
 Out loud.
 
-Not as punishment. As repair.
+Not as punishment.
+As repair.
 
-“I saw water here,” Daniel said, pointing. “Not there. If patch this way, water goes behind. Worse later.”
+“I saw water here,” Daniel said, pointing.
+“Not there.
+If patch this way, water goes behind.
+Worse later.”
 
 The man of the house nodded.
 
@@ -276,7 +322,10 @@ Daniel swallowed.
 
 Maryam would have approved.
 
-Yosef corrected the patch plan. They repaired properly enough. The family did not mock him. This was mercy and, somehow, worse.
+Yosef corrected the patch plan.
+They repaired properly enough.
+The family did not mock him.
+This was mercy and, somehow, worse.
 
 On the way home, Daniel said, “I should not look without you.”
 
@@ -314,9 +363,11 @@ Into the chest it went.
 
 The first adult who asked for Yeshua specifically was Ruth.
 
-She was not yet the Ruth she would become later in the work, but she was already old, sharp, and uninterested in being managed. She arrived with a bowl whose rim had cracked, set it down, and looked directly at Daniel.
+She was not yet the Ruth she would become later in the work, but she was already old, sharp, and uninterested in being managed.
+She arrived with a bowl whose rim had cracked, set it down, and looked directly at Daniel.
 
-“You. Tell me if this is for food or for chickens.”
+“You.
+Tell me if this is for food or for chickens.”
 
 Maryam said, “Ruth.”
 
@@ -326,7 +377,11 @@ Mara whispered, “I like her.”
 
 Daniel looked at the bowl.
 
-Clay, not his material, but the crack was visible. It might hold dry grain. Not liquid. Food? Perhaps if lined, but risk. Chickens seemed safe, though the bowl’s dignity might suffer less than some people’s.
+Clay, not his material, but the crack was visible.
+It might hold dry grain.
+Not liquid.
+Food? Perhaps if lined, but risk.
+Chickens seemed safe, though the bowl’s dignity might suffer less than some people’s.
 
 He looked at Ruth.
 
@@ -350,13 +405,16 @@ Ruth stared.
 
 Then laughed.
 
-“Good. It must stop making me think it can hold stew when it cannot.”
+“Good.
+It must stop making me think it can hold stew when it cannot.”
 
 “Then chickens.”
 
 Ruth nodded.
 
-“Good. I knew. Wanted to see if you did.”
+“Good.
+I knew.
+Wanted to see if you did.”
 
 Maryam sighed.
 
@@ -402,7 +460,9 @@ This time the box was fine.
 
 Lavi was not.
 
-He came alone, carrying the box against his chest. His serious face had become too serious. Children should not look as if they had learned adult silence.
+He came alone, carrying the box against his chest.
+His serious face had become too serious.
+Children should not look as if they had learned adult silence.
 
 Maryam saw first.
 
@@ -414,7 +474,8 @@ Lavi shook his head.
 
 He ate.
 
-Only then did he open the box. Inside was the cloth-wrapped thing he had not shown before: a small bone bead cracked in two.
+Only then did he open the box.
+Inside was the cloth-wrapped thing he had not shown before: a small bone bead cracked in two.
 
 “My brother,” he said.
 
@@ -426,15 +487,21 @@ Lavi said, “He left.”
 
 Ah.
 
-Not dead. Sent to work with relatives after a debt tightened. Gone far enough to feel like death to a child and close enough that adults called it practical.
+Not dead.
+Sent to work with relatives after a debt tightened.
+Gone far enough to feel like death to a child and close enough that adults called it practical.
 
-The bead had been his brother’s. It broke after Lavi slept with it in his fist.
+The bead had been his brother’s.
+It broke after Lavi slept with it in his fist.
 
 “Can fix?” Lavi asked.
 
 Daniel looked.
 
-No. Not truly. It could be tied together, wrapped, set into something, kept as two halves. It would not become one bead again.
+No.
+Not truly.
+It could be tied together, wrapped, set into something, kept as two halves.
+It would not become one bead again.
 
 He hated this.
 
@@ -456,13 +523,17 @@ Lavi’s eyes filled.
 
 Good question.
 
-They decided together to make a small tied charm inside the box, not for magic, but so the two halves stayed near each other. Daniel drilled carefully with a tiny awl under Maryam’s supervision, threaded cord, tied both pieces to a small backing of wood. The bead did not become whole. It became held.
+They decided together to make a small tied charm inside the box, not for magic, but so the two halves stayed near each other.
+Daniel drilled carefully with a tiny awl under Maryam’s supervision, threaded cord, tied both pieces to a small backing of wood.
+The bead did not become whole.
+It became held.
 
 Lavi accepted this with grief and relief mixed.
 
 After he left, Daniel wrote:
 
-Some things cannot be repaired. They can be held.
+Some things cannot be repaired.
+They can be held.
 
 Mara read it.
 
@@ -496,7 +567,11 @@ Not smaller.
 
 More complicated.
 
-Some people still said he saw what things were. Others said he asked annoying questions first. Some said Maryam had trained him not to become strange, which Maryam considered an acceptable rumor because it made her sound more powerful than mystery. Some said Yosef’s household repaired objects by making people confess to them. This was not wrong enough to correct urgently.
+Some people still said he saw what things were.
+Others said he asked annoying questions first.
+Some said Maryam had trained him not to become strange, which Maryam considered an acceptable rumor because it made her sound more powerful than mystery.
+Some said Yosef’s household repaired objects by making people confess to them.
+This was not wrong enough to correct urgently.
 
 Children trusted him with broken things.
 
@@ -556,7 +631,8 @@ Ah.
 
 There.
 
-The bead. The brother.
+The bead.
+The brother.
 
 Daniel sat.
 
@@ -576,7 +652,8 @@ Yosef added, “And some things need more than seeing.”
 
 Mara said, “And some people leave because adults make poor accounts.”
 
-Maryam gave her a look. Mara shrugged.
+Maryam gave her a look.
+Mara shrugged.
 
 Lavi stayed.
 
@@ -586,7 +663,16 @@ Not cracks.
 
 Purpose.
 
-Then touch. Then load. Then water. Then owner. Then whether repair would hide danger. He was impatient. Good. Children should be impatient with loss. He also listened. Better.
+Then touch.
+Then load.
+Then water.
+Then owner.
+Then whether repair would hide danger.
+He was impatient.
+Good.
+Children should be impatient with loss.
+He also listened.
+Better.
 
 The first repair he made under supervision was a toy cart wheel.
 
@@ -616,7 +702,11 @@ That was allowed.
 
 The first repair ended not with the box but with the chest.
 
-Yosef made a shelf for the chest of things not to worship because it had begun overflowing. Maryam insisted it stay low enough for children to see but not so low that toddlers could eat lessons. Mara suggested drawing a goat on it. Denied. She drew one underneath where adults rarely looked.
+Yosef made a shelf for the chest of things not to worship because it had begun overflowing.
+Maryam insisted it stay low enough for children to see but not so low that toddlers could eat lessons.
+Mara suggested drawing a goat on it.
+Denied.
+She drew one underneath where adults rarely looked.
 
 Daniel found it later.
 
@@ -692,7 +782,10 @@ Always food.
 
 He rose, then paused.
 
-Sometimes he still expected another name first. Daniel, from old rooms. Or the future name he had not yet spoken. But the name that came through the doorway was Yeshua, and it brought him toward bread, Maryam, Yosef, Mara stealing the best edge, and a house full of broken objects that had not become miracles.
+Sometimes he still expected another name first.
+Daniel, from old rooms.
+Or the future name he had not yet spoken.
+But the name that came through the doorway was Yeshua, and it brought him toward bread, Maryam, Yosef, Mara stealing the best edge, and a house full of broken objects that had not become miracles.
 
 He went inside.
 

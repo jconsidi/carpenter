@@ -20,7 +20,13 @@ Mara said so immediately.
 
 “Exactly.”
 
-The problem was not that he wanted attention. Usually he wanted less. The problem was that avoiding attention had become another way of organizing his life around it. He watched himself being watched. He chose not to speak and then noticed who noticed. He moved away from crowds and then imagined what rumor would do with the absence. He tried to act like a child and discovered that acting like a child was an adult project.
+The problem was not that he wanted attention.
+Usually he wanted less.
+The problem was that avoiding attention had become another way of organizing his life around it.
+He watched himself being watched.
+He chose not to speak and then noticed who noticed.
+He moved away from crowds and then imagined what rumor would do with the absence.
+He tried to act like a child and discovered that acting like a child was an adult project.
 
 Ordinary, he learned quickly, could not be built directly.
 
@@ -94,7 +100,8 @@ Mara said, “Try being useful and boring.”
 
 “That sounds possible.”
 
-“It is not. But try.”
+“It is not.
+But try.”
 
 So he did.
 
@@ -104,7 +111,14 @@ His first ordinary project was carrying water without comment.
 
 This failed within an hour.
 
-The path from the water source had a loose stone near the bend. He had noticed it before. Everyone had. It shifted underfoot if stepped on from one angle. Adults avoided it from habit. Children forgot. Visitors stumbled. It had not caused serious harm, which meant it had become accepted.
+The path from the water source had a loose stone near the bend.
+He had noticed it before.
+Everyone had.
+It shifted underfoot if stepped on from one angle.
+Adults avoided it from habit.
+Children forgot.
+Visitors stumbled.
+It had not caused serious harm, which meant it had become accepted.
 
 Yeshua decided not to mention it.
 
@@ -124,7 +138,10 @@ The world did not end.
 
 That made it worse.
 
-Sima cried. Her mother scolded her for running. Maryam came with water. Daniel stood with his own jar and felt guilt climb him like ivy.
+Sima cried.
+Her mother scolded her for running.
+Maryam came with water.
+Daniel stood with his own jar and felt guilt climb him like ivy.
 
 Mara looked at him from across the path.
 
@@ -140,7 +157,10 @@ She stared.
 
 Then, with rare restraint, did not insult him until Sima had been cleaned and the jar assessed.
 
-The stone was moved. The path was reset. The jar became dry storage if Sima approved. She did after being allowed to choose what it would hold.
+The stone was moved.
+The path was reset.
+The jar became dry storage if Sima approved.
+She did after being allowed to choose what it would hold.
 
 Only then did Mara return.
 
@@ -178,7 +198,11 @@ His second ordinary project was to stop correcting adults.
 
 This failed more slowly and with greater social cost.
 
-A man named Haggai—not later Jerusalem Haggai, just a local Haggai with poor knot judgment—was tying a load onto a cart. The rope passed over the bundle badly. One knot looked secure only because the load had not moved yet. Yeshua saw it. He said nothing.
+A man named Haggai—not later Jerusalem Haggai, just a local Haggai with poor knot judgment—was tying a load onto a cart.
+The rope passed over the bundle badly.
+One knot looked secure only because the load had not moved yet.
+Yeshua saw it.
+He said nothing.
 
 Ordinary.
 
@@ -188,7 +212,9 @@ The bundle shifted.
 
 The rope tightened along the wrong line and snapped a small clay vessel at the edge.
 
-Not catastrophic. Embarrassing. Wasteful.
+Not catastrophic.
+Embarrassing.
+Wasteful.
 
 Haggai cursed the rope.
 
@@ -198,7 +224,9 @@ Haggai glared.
 
 Yeshua closed his eyes.
 
-Maryam was not there. Yosef was. Worse.
+Maryam was not there.
+Yosef was.
+Worse.
 
 Yosef walked over, inspected the rope, the load, the broken vessel, and Yeshua’s face.
 
@@ -236,9 +264,12 @@ Yosef did his best.
 
 Good.
 
-Haggai retied the load badly again out of spite. Yosef made him do it a third time. The third held.
+Haggai retied the load badly again out of spite.
+Yosef made him do it a third time.
+The third held.
 
-Later, Daniel apologized to Haggai for withholding what he saw. Haggai did not know what to do with that and accepted by complaining about the price of rope.
+Later, Daniel apologized to Haggai for withholding what he saw.
+Haggai did not know what to do with that and accepted by complaining about the price of rope.
 
 Good enough.
 
@@ -256,7 +287,9 @@ The third attempt at ordinary involved ignoring a crowd.
 
 This actually worked for half a day.
 
-A family had come because their roof leaked, but they brought three relatives, two neighbors, and a boy who only wanted to see whether Yeshua would say something strange. Maryam identified the boy immediately and gave him a basket to sort. He regretted curiosity.
+A family had come because their roof leaked, but they brought three relatives, two neighbors, and a boy who only wanted to see whether Yeshua would say something strange.
+Maryam identified the boy immediately and gave him a basket to sort.
+He regretted curiosity.
 
 Yosef inspected the roof.
 
@@ -266,7 +299,14 @@ Good.
 
 Mara watched from a wall, suspicious.
 
-The leak was simple enough. A channel clogged by leaves and a small collapse of dried material. Yosef cleared, patched, and explained. Yeshua held tools. Said little. No one gasped. No one asked for a prediction. The spectator boy sorted poorly but productively.
+The leak was simple enough.
+A channel clogged by leaves and a small collapse of dried material.
+Yosef cleared, patched, and explained.
+Yeshua held tools.
+Said little.
+No one gasped.
+No one asked for a prediction.
+The spectator boy sorted poorly but productively.
 
 Ordinary.
 
@@ -304,7 +344,8 @@ She smiled despite herself.
 
 “Old eyes for me too.”
 
-“No,” Mara called from the wall. “Just eyes.”
+“No,” Mara called from the wall.
+“Just eyes.”
 
 The family laughed.
 
@@ -318,7 +359,8 @@ On the walk home, Daniel said, “That worked.”
 
 Maryam nodded.
 
-“Because you did not disappear. You carried tools.”
+“Because you did not disappear.
+You carried tools.”
 
 Yosef said, “And she saw.”
 
@@ -336,7 +378,12 @@ It did not collapse on anyone.
 
 This was the mercy.
 
-It collapsed on stored wood, two baskets, and a goat tether that probably deserved better. The lean-to belonged to Abner’s cousin, which meant Abner had opinions and no responsibility. It had been built quickly, loaded slowly, and inspected never. The roof sagged over months. Everyone saw. No one owned the seeing.
+It collapsed on stored wood, two baskets, and a goat tether that probably deserved better.
+The lean-to belonged to Abner’s cousin, which meant Abner had opinions and no responsibility.
+It had been built quickly, loaded slowly, and inspected never.
+The roof sagged over months.
+Everyone saw.
+No one owned the seeing.
 
 Daniel saw too.
 
@@ -346,7 +393,9 @@ Then rain came.
 
 Then wind.
 
-Then a beam slipped. The roof folded. The goat escaped, which complicated the moral tone.
+Then a beam slipped.
+The roof folded.
+The goat escaped, which complicated the moral tone.
 
 People gathered.
 
@@ -404,7 +453,18 @@ He laughed weakly.
 
 That evening, he made the plan.
 
-Leave before dawn. Go to a nearby village where fewer people knew him. Work under another name? No, Yeshua was his name here; changing it would be melodramatic and impractical. Work quietly. Avoid markets. Avoid roofs. Impossible. Avoid people. More impossible. Maybe become a laborer under Yosef’s cousin for a season. Send word. Return later when rumors cooled.
+Leave before dawn.
+Go to a nearby village where fewer people knew him.
+Work under another name? No, Yeshua was his name here; changing it would be melodramatic and impractical.
+Work quietly.
+Avoid markets.
+Avoid roofs.
+Impossible.
+Avoid people.
+More impossible.
+Maybe become a laborer under Yosef’s cousin for a season.
+Send word.
+Return later when rumors cooled.
 
 He did not tell anyone.
 
@@ -444,7 +504,8 @@ He looked up.
 
 “Good?”
 
-“Fear can tell truth. Then it must sit down before ruling.”
+“Fear can tell truth.
+Then it must sit down before ruling.”
 
 Hanina said, “If you leave, roofs remain foolish.”
 
@@ -452,7 +513,8 @@ Hanina said, “If you leave, roofs remain foolish.”
 
 She pointed an onion at him.
 
-“And people remain foolish. You are not that important.”
+“And people remain foolish.
+You are not that important.”
 
 Helpful.
 
@@ -534,13 +596,19 @@ The first teaching circle had five children and one adult pretending not to lear
 
 Erel was there.
 
-So were Lavi, Sima, a boy named Rafi, and Mara because she claimed to be quality control. The adult was Haggai with the bad knots, sitting near enough to hear while repairing a strap very slowly.
+So were Lavi, Sima, a boy named Rafi, and Mara because she claimed to be quality control.
+The adult was Haggai with the bad knots, sitting near enough to hear while repairing a strap very slowly.
 
 Yosef brought objects from the chest.
 
 Not the most painful ones.
 
-A loose peg. A cracked handle. A wrong roof-line scrap. A short cord. Ruth’s bowl shard. Lavi’s box corner copy.
+A loose peg.
+A cracked handle.
+A wrong roof-line scrap.
+A short cord.
+Ruth’s bowl shard.
+Lavi’s box corner copy.
 
 Yeshua stood before them and wanted to flee.
 
@@ -576,9 +644,18 @@ Mara applauded.
 
 Daniel breathed.
 
-“Yes. Also peg loose.”
+“Yes.
+Also peg loose.”
 
-They tested. Pushed from one side, then another. Load changes. Water goes where it can. Smooth can hide crack. A box can keep being box. A bowl for chickens may still be useful. A cord too short for storm is still cord. Do not blame bearer before inspecting fit.
+They tested.
+Pushed from one side, then another.
+Load changes.
+Water goes where it can.
+Smooth can hide crack.
+A box can keep being box.
+A bowl for chickens may still be useful.
+A cord too short for storm is still cord.
+Do not blame bearer before inspecting fit.
 
 Haggai corrected a knot from the side.
 
@@ -600,7 +677,13 @@ Not silent.
 
 Not unneeded.
 
-Ordinary meant work did not require spectacle to continue. A loose stone moved without announcement. A child taught to test a peg. A roof owner shown water path. A mother allowed to say no when her son was treated as charm. A mistake admitted before it became story. A plan to flee interrupted by onions.
+Ordinary meant work did not require spectacle to continue.
+A loose stone moved without announcement.
+A child taught to test a peg.
+A roof owner shown water path.
+A mother allowed to say no when her son was treated as charm.
+A mistake admitted before it became story.
+A plan to flee interrupted by onions.
 
 Yeshua remained strange.
 
@@ -612,7 +695,12 @@ Jesus still waited outside speech, though the shape of the old story pressed clo
 
 But ordinary was not the absence of strangeness.
 
-Ordinary was bread after fear. Tools returned. Mud cleaned. Lessons repeated. Names called for supper. People allowed to leave.
+Ordinary was bread after fear.
+Tools returned.
+Mud cleaned.
+Lessons repeated.
+Names called for supper.
+People allowed to leave.
 
 One evening, after the teaching circle, Erel lingered.
 
@@ -720,11 +808,13 @@ He looked toward the teaching chest.
 
 Maryam nodded.
 
-“Distribute sight. Keep returning.”
+“Distribute sight.
+Keep returning.”
 
 “Come home.”
 
-“Yes. But not as net.”
+“Yes.
+But not as net.”
 
 He did not yet understand how much that mattered.
 
@@ -742,7 +832,11 @@ Maryam smiled.
 
 He went out.
 
-The goat had tangled its tether around a post because someone had tied a knot badly. Erel was there, already inspecting the line. Lavi held the goat badly but bravely. Sima explained that the goat had made several poor choices. Mara supervised with unbearable satisfaction.
+The goat had tangled its tether around a post because someone had tied a knot badly.
+Erel was there, already inspecting the line.
+Lavi held the goat badly but bravely.
+Sima explained that the goat had made several poor choices.
+Mara supervised with unbearable satisfaction.
 
 Daniel started to take over.
 
@@ -752,7 +846,8 @@ Stopped.
 
 Erel looked at the knot.
 
-“Wrong path. Pulling makes worse.”
+“Wrong path.
+Pulling makes worse.”
 
 “Good.”
 

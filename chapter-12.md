@@ -657,9 +657,9 @@ The sound in her mouth was strange but not wrong.
 
 She nodded.
 
-Then she said his new name.
+Then she said Yeshua.
 
-The two names stood side by side in the dry channel, both ordinary once spoken.
+The two names stood side by side in the dry channel: one from the old life, one from this one, both ordinary once spoken.
 
 Mara picked up the twisted root.
 
@@ -910,7 +910,7 @@ Some build everything on that.
 Some fight over what it means.
 In my world, many people believed he was divine.
 Many did not.
-Many used his name for mercy.
+Many used the old-world form of his name for mercy.
 Many used it for power.
 Many wore little versions of the wood he died on without thinking what it was.”
 
@@ -959,9 +959,9 @@ That was closer to truth than he had meant to go.
 
 Yosef turned from the doorway.
 
-“Was his name yours?”
+“Was his name Yeshua?”
 
-The question struck the center.
+The question struck the center because the name itself was ordinary and had been ordinary all his life here.
 
 Daniel could not speak.
 
@@ -975,6 +975,7 @@ Daniel forced words out.
 
 “In another language.
 Through other mouths.
+A later form of it.
 But yes.”
 
 The room broke without sound.
@@ -1745,7 +1746,7 @@ The apprentice.
 Claire.
 A life of buildings, failures, small kindnesses badly timed, work done well and not well enough.
 
-His new name lay nearer.
+Yeshua lay nearer.
 
 This frightened him too, but differently.
 Not only because of the future story.

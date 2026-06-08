@@ -248,7 +248,7 @@ Daniel envied him for this uncomplicated excitement.
 
 Then envied him less when Erel asked, "Will there be large fish?"
 
-Mara said, "If one eats Daniel, bring back the fish.
+Mara said, "If one eats Yeshua, bring back the fish.
 We can mark it as hazardous."
 
 Maryam said, "Mara."
