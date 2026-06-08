@@ -327,7 +327,7 @@ Maryam said, "My son."
 
 Mara said, "Annoying."
 
-Erel said, "Daniel."
+Erel said, "Yosef's son."
 
 Ruth said, "Not enough to excuse foolishness."
 
