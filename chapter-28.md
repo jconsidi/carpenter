@@ -4,7 +4,7 @@ The question arrived disguised as a cracked lintel.
 
 This was becoming a pattern.
 
-A man named Malchus brought it on a cart with two cousins, three opinions, and no useful measurements.
+A man named Amram brought it on a cart with two cousins, three opinions, and no useful measurements.
 The lintel had come from a storage doorway in a house near the market.
 It was not fully broken, which made it more dangerous.
 A clean break at least admitted failure.
@@ -16,7 +16,7 @@ Termites had considered it as philosophy.
 
 Yosef looked at it and said, "No."
 
-Malchus blinked.
+Amram blinked.
 
 "No?"
 
@@ -25,7 +25,7 @@ Not reused as lintel."
 
 Daniel loved him for that.
 
-Malchus looked disappointed.
+Amram looked disappointed.
 His cousins looked offended on behalf of economy.
 
 "It has held many years," one cousin said.
@@ -65,7 +65,7 @@ Daniel said, "Good."
 
 Erel tried not to smile.
 
-Malchus watched this with impatience.
+Amram watched this with impatience.
 
 "We came because people said the teacher sees what things are."
 
@@ -81,7 +81,7 @@ He kept his hand on the lintel.
 
 "Wood first," he said.
 
-Malchus frowned.
+Amram frowned.
 
 "I mean the boy."
 
@@ -97,7 +97,7 @@ Maryam came to the doorway.
 
 "What do you ask?"
 
-Malchus shifted.
+Amram shifted.
 
 He was not a foolish man, Daniel saw.
 Nervous, perhaps.
@@ -128,7 +128,7 @@ Not like this.
 
 Mara stepped down from the threshold and stood beside him without touching.
 
-Malchus continued, encouraged or trapped by his own momentum.
+Amram continued, encouraged or trapped by his own momentum.
 
 "Some say prophet.
 Some say healer.
@@ -143,7 +143,7 @@ Daniel wanted to leave.
 
 The lintel lay between them, split nearly through.
 
-Malchus swallowed.
+Amram swallowed.
 
 "So we ask."
 
@@ -153,7 +153,7 @@ Good.
 
 Always first: who carries the question?
 
-Malchus looked at his cousins, then at the road.
+Amram looked at his cousins, then at the road.
 
 "Men near the market.
 Some from the hill.
@@ -165,7 +165,7 @@ Natan, unfortunately present with a broken tablet frame, closed his eyes.
 
 Mara said, "Cowards sent a lintel."
 
-Malchus flushed.
+Amram flushed.
 
 Daniel almost laughed.
 
@@ -173,7 +173,7 @@ Maryam did not.
 
 She asked, "What answer do they want?"
 
-Malchus stared.
+Amram stared.
 
 "Truth."
 
@@ -181,7 +181,7 @@ Ruth, seated in shade with Asa and a bowl of something she had declared inadequa
 
 "Men never send another man to ask for truth when appetite will do."
 
-Malchus looked at her and made the correct choice not to answer.
+Amram looked at her and made the correct choice not to answer.
 
 Maryam repeated, "What answer do they want?"
 
@@ -197,13 +197,13 @@ Natan opened his eyes.
 
 Daniel looked up then.
 
-Malchus's face was honest in its fear.
+Amram's face was honest in its fear.
 
 That mattered.
 
 "Why?" Daniel asked.
 
-Malchus answered too quickly.
+Amram answered too quickly.
 
 "So they know whether to listen."
 
@@ -217,7 +217,7 @@ She stepped closer to the lintel.
 Names come after usefulness, fear, hope, or offense.
 Why do they want a name now?"
 
-Malchus looked at the wood.
+Amram looked at the wood.
 
 "Because more people come."
 
@@ -241,7 +241,7 @@ Men embarrassed.
 Children using marks.
 A household becoming roads.
 
-Malchus said, "Some want order.
+Amram said, "Some want order.
 Some want warning.
 Some want to stop it.
 Some want to join it.
@@ -257,7 +257,7 @@ Daniel whispered back, "Do not."
 
 "Too late."
 
-Malchus looked at Daniel.
+Amram looked at Daniel.
 
 "What do you say?"
 
@@ -272,7 +272,7 @@ He placed his hand on the wood.
 
 "I say this cannot be a lintel."
 
-Malchus stared.
+Amram stared.
 
 Daniel continued, "If you put it back over a doorway because you like that it held before, it will fall.
 If you paint it again, it will still fall.
@@ -281,7 +281,7 @@ The right name is not enough."
 
 Mara's mouth tightened in approval.
 
-Daniel looked at Malchus.
+Daniel looked at Amram.
 
 "If they ask who I am because they need a lintel for what is happening, tell them no."
 
@@ -289,7 +289,7 @@ Silence.
 
 Maryam watched him carefully.
 
-Malchus said, "No?"
+Amram said, "No?"
 
 "No.
 I will not be the beam they put over every doorway they are afraid to rebuild."
@@ -315,7 +315,7 @@ He softened it before it hardened into performance.
 
 "And if they ask my name, they already know what to call me when work is before us."
 
-Malchus whispered, "Which is?"
+Amram whispered, "Which is?"
 
 Daniel looked at Yosef.
 
@@ -337,7 +337,7 @@ The courtyard breathed.
 
 Daniel smiled despite himself.
 
-Malchus did too, faintly.
+Amram did too, faintly.
 
 Natan said quietly, "And if they ask beyond that?"
 
@@ -1238,7 +1238,7 @@ She stopped.
 
 "Who are you when no one needs anything?"
 
-The question hit harder than Malchus, Natan, Elior, Dalia, or Erel.
+The question hit harder than Amram, Natan, Elior, Dalia, or Erel.
 
 Daniel looked at her.
 
@@ -1370,7 +1370,7 @@ As hand.
 
 The market men eventually sent someone else.
 
-Not Malchus.
+Not Amram.
 
 Not Elior.
 
@@ -1779,7 +1779,7 @@ Natan was crying.
 
 This alarmed Daniel.
 
-Malchus stood at the back.
+Amram stood at the back.
 
 "So what answer do you keep?"
 
