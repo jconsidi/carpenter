@@ -523,8 +523,7 @@ Better.
 
 Natan said, "What may I call you?"
 
-Daniel's old name sat in his chest.
-His new name, still unprinted in the world of the page but spoken daily by those around him, sat beside it.
+Daniel's name sat in his chest.
 Son.
 Builder.
 Teacher.
@@ -1793,13 +1792,7 @@ Then the objects.
 
 He could say son.
 
-He could say Daniel.
-
 He could say the new name.
-
-Not yet.
-
-The new name remained held back from the reader, and within the story it was known, but not offered as public category.
 
 He said, "I am someone trying not to let fear decide alone."
 
