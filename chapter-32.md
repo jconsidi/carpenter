@@ -12,7 +12,9 @@ The man’s name was Barak.
 
 He came with a coin, no object he admitted was broken, and two men who stood far enough behind him to pretend they were not a delegation.
 
-Naama saw him first at the door.
+A woman named Naama saw him first at the door.
+
+She had become useful around routes, thresholds, and the refusal of vague purpose.
 
 “Purpose?”
 

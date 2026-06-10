@@ -438,9 +438,9 @@ If I say Yeshua teaches, they gather for sayings.
 If I say Yeshua repairs, they bring objects.
 If I say the rooms teach, they say rooms do not speak.
 If I list all the people who carry sight, they stop listening before I finish.
-If I refuse to name anyone, Barak's kind name for us."
+If I refuse to name anyone, clean men will name us."
 
-Barak had not yet entered the story fully, but his kind existed in every market: men who preferred clean handles.
+Their kind existed in every market: men who preferred clean handles.
 
 Daniel looked at the latch.
 
@@ -702,7 +702,7 @@ Perhaps all."
 
 Honest.
 
-Yehudah had not yet arrived in the narrative, but Daniel already felt the future shape of accounts, purses, leverage, men who understood systems.
+Daniel already felt the future shape of accounts, purses, leverage, and men who understood systems.
 
 "What do they call me?" Daniel asked.
 
@@ -1331,7 +1331,7 @@ Not morally.
 Physically.
 
 Too many people came with too many questions that were not all curiosity.
-Some came because Barak-like men sent them.
+Some came because clean men sent them.
 Some came because the serious men wanted reports.
 Some came because hunger and rumor had tangled.
 Some came because they had heard Shifra's lamp stand line and wanted to know whether Yeshua was light, stand, oil, or danger.
@@ -1482,7 +1482,7 @@ The hill was silent.
 
 "If you make me the beam over every doorway, I will fail you.
 If you make my name the answer before asking what is broken, you will stop seeing.
-If you use Yeshua to avoid Maryam, Yosef, Mara, Dalia, Hanina, Ruth, Tirzah, Asa, Erel, Shifra, Naama, the hungry, the sick, the grieving, the indebted, and those not here because your questions cost too much, you have already misused the name."
+If you use Yeshua to avoid Maryam, Yosef, Mara, Dalia, Hanina, Ruth, Tirzah, Asa, Erel, Shifra, the hungry, the sick, the grieving, the indebted, and those not here because your questions cost too much, you have already misused the name."
 
 Mara whispered, "Long list.
 Good."

@@ -198,7 +198,7 @@ Yehudah opened the purse.
 Of course it had.
 
 He proposed divided accounts: food, travel, repair materials, emergency aid, disputed gifts, returned gifts, donor conditions, anonymous routes, witness names held separately from public records.
-Rinnah for labor.
+A woman named Rinnah would keep labor names because she already knew which hands disappeared when men praised generosity.
 Naama for routes.
 Maryam for household use.
 Yehudah for copies only, inspected by those affected.

@@ -375,7 +375,7 @@ Then he told them that the same name had been used to make people small, to bles
 
 Maryam’s face hardened there.
 
-“Avital was right.”
+“The warning was right.”
 
 “Yes.”
 

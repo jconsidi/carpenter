@@ -18,7 +18,7 @@ Mara said this while sharpening an actual knife, which made the metaphor worse a
 
 Pressure became small.
 
-A seller refused Dinah unless she stopped asking rate questions.
+A seller named Dinah was refused service unless she stopped asking rate questions.
 Azriel intervened and lost customers.
 A guard moved Natan along whenever he paused near the court.
 Rinnah’s grinding group found oven time suddenly unavailable until Naama spoke with two witnesses and a loaf that smelled like accusation.

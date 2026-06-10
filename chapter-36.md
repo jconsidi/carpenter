@@ -12,7 +12,7 @@ Mara leaned in the doorway.
 He ignored her, risking death.
 
 “The work circles have separated.
-Naama’s routes, Shifra’s contacts, Azriel’s weights, Rinnah’s labor names, Joazar’s seal witnesses, those hurt by Barak, those afraid to be seen.
+Naama’s routes, Shifra’s contacts, Azriel’s weights, Rinnah’s labor names, seal witnesses arranged through a quiet man named Joazar, those hurt by Barak, those afraid to be seen.
 If they stay separate, they can be named separately and broken separately.”
 
 Maryam asked, “So a meal.”
@@ -34,7 +34,7 @@ Shifra.
 Joazar.
 Azriel.
 Rinnah.
-Mattithiah if he would come.
+Mattithiah, a functionary with enough standing to cross rooms, if he would come.
 Natan.
 Maryam, Yosef, Yeshua, Mara, Erel.
 Yehudah.
@@ -221,7 +221,7 @@ Falsehood with true bones.
 
 The correction opened the room.
 Rinnah named bread hands.
-Dinah said the cup could be refused.
+A woman from the rate disputes said the cup could be refused.
 Avital said the dead were named and not spent.
 Yehudah opened accounts.
 Seraiah was named as having left before chores.

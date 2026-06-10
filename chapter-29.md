@@ -145,7 +145,7 @@ Not the whole refusal.
 Some of it had been good.
 Some had protected people.
 Some had kept him from becoming the center too soon.
-Some had slowed the story enough for Maryam, Yosef, Mara, Dalia, Hanina, Ruth, Tirzah, Asa, Erel, Shifra, Naama, and others to remain visible.
+Some had slowed the story enough for Maryam, Yosef, Mara, Dalia, Hanina, Ruth, Tirzah, Asa, Erel, Shifra, and others to remain visible.
 
 But some part of it had become old thread around a cracked bowl.
 
@@ -487,7 +487,7 @@ Memory uncertain.
 Tradition uncertain.
 Good.
 
-Mara, Erel, Dalia, Ruth, Hanina, Asa, Tobiah, Yair, Sima, Tirzah, Elior, Natan, Shifra, Naama, Dinah, Avital—too many real people for a clean story.
+Mara, Erel, Dalia, Ruth, Hanina, Asa, Tobiah, Yair, Sima, Tirzah, Elior, Natan, Shifra—too many real people for a clean story.
 
 The old story may be a compression.
 
@@ -621,7 +621,7 @@ Against story using bodies.
 
 Refusal helped distribute sight.
 
-Refusal let Maryam, Yosef, Mara, Hanina, Dalia, Ruth, Tirzah, Asa, Erel, Shifra, Naama, and others become visible.
+Refusal let Maryam, Yosef, Mara, Hanina, Dalia, Ruth, Tirzah, Asa, Erel, Shifra, and others become visible.
 
 Refusal was not only fear.
 
